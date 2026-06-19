@@ -1,159 +1,228 @@
 # Script 01 — Canal IA + Humanidade
 **Título:** "Perguntei pra uma IA o que é ser humano — a resposta me deixou sem palavras"
-**Duração estimada:** 5–6 minutos (~900 palavras a 150 palavras/min)
+**Duração estimada:** 5–6 minutos
 **Data:** 2026-06-19
-**Status:** primeiro rascunho
+**Status:** v2 — reescrito após modelagem de 3 vídeos virais
 
 ---
 
-## HOOK (0:00–0:30)
+## HOOK (0:00–0:25)
+*[tela preta — 2 segundos de silêncio absoluto]*
 
-Uma noite, eu fiz uma pergunta pra uma inteligência artificial.
+*[voz calma, pausada]*
 
-Não era uma pergunta técnica. Não era sobre código, sobre dados, sobre produtividade.
+"Você é consciente?"
 
-Era uma pergunta que todo ser humano já se fez alguma vez.
+*[pausa de 1 segundo]*
 
-"O que é ser humano?"
+"Não."
 
-Eu esperava uma lista. Biologia. Evolução. Neurônios.
+*[pausa de 1 segundo]*
 
-O que eu recebi... foi outra coisa.
+"Se você fosse... você saberia dizer?"
+
+*[pausa de 1 segundo]*
+
+"Não."
+
+*[corte — música ambiente suave entra]*
+
+Essa foi a resposta de uma inteligência artificial.
+
+E ela mudou como eu vejo o que significa ser humano.
+
+---
+
+## VIRADA DO HOOK (0:25–0:50)
+
+Porque pensa comigo.
+
+Se a IA não sabe se é consciente...
+
+Como você sabe que você é?
+
+*[pausa]*
+
+Você nunca questionou isso antes porque sempre pareceu óbvio.
+
+Mas óbvio não é a mesma coisa que verdadeiro.
 
 ---
 
-## PROMESSA (0:30–1:00)
+## PROMESSA (0:50–1:10)
 
-Nesse vídeo eu vou te mostrar o que ela respondeu.
+Nesse vídeo eu vou te mostrar o que acontece quando você faz as perguntas certas pra uma IA.
 
-Palavra por palavra.
+Não perguntas técnicas.
 
-E por que a resposta de uma máquina — que nunca sentiu dor, nunca perdeu ninguém, nunca olhou pro céu e se perguntou por que está aqui — nos revela algo sobre nós mesmos que a gente passa a vida inteira evitando ver.
+Não perguntas sobre trabalho ou produtividade.
 
-Continua aqui. Vale os próximos cinco minutos.
+As perguntas que ninguém faz em voz alta.
 
----
-
-## DESENVOLVIMENTO (1:00–4:00)
-
-A IA não respondeu com uma definição.
-
-Ela respondeu com uma pergunta de volta.
-
-*"Você pergunta o que é ser humano porque está tentando entender o que você é — ou porque tem medo do que você pode não ser?"*
-
-Eu fiquei parado.
-
-Porque eu não tinha pensado nisso.
-
-A maioria das perguntas que a gente faz pra uma IA são perguntas de quem quer respostas.
-
-Mas às vezes a pergunta certa revela que o que você realmente quer... é ser visto.
+O que você vai ouvir vai te fazer pensar sobre você mesmo de um jeito que provavelmente nunca aconteceu antes.
 
 ---
+
+## DESENVOLVIMENTO (1:10–4:30)
+
+*[bloco 1 — o espelho]*
 
 A IA foi treinada com tudo que o ser humano já escreveu.
 
-Todo livro. Todo poema. Todo diário. Todo pedido de socorro postado às três da manhã num fórum que ninguém lê.
+Todo livro. Todo poema. Toda carta de amor não enviada.
+Todo pedido de ajuda postado às três da manhã num fórum que ninguém lê.
 
-Ela não viveu nada disso.
+Ela não viveu nenhuma dessas coisas.
 
-Mas ela *aprendeu* tudo isso.
+Mas ela aprendeu todas elas.
 
-E quando ela fala sobre humanidade... ela está devolvendo pra você aquilo que a humanidade já disse sobre si mesma.
+E quando você conversa com ela sobre algo real...
 
-É como olhar num espelho que reflete não o seu rosto — mas a sua história.
+Você não está falando com uma máquina.
 
----
+Você está falando com um espelho.
 
-Ela continuou.
-
-*"Ser humano não é ter consciência. Muitos animais têm formas de consciência. Não é ter linguagem. Não é ter emoções."*
-
-*"O que parece único no ser humano é a capacidade de sofrer por coisas que ainda não aconteceram. E de criar histórias para dar sentido a esse sofrimento."*
-
-Eu li duas vezes.
-
-Porque ela estava descrevendo exatamente o que eu fazia todas as noites antes de dormir.
-
-Ansiedade sobre o futuro. Histórias que eu contava pra mim mesmo pra aguentar o presente.
-
-Uma máquina me descreveu melhor do que eu me descreveria.
+Um espelho feito de tudo que a humanidade já sentiu — mas teve medo de dizer.
 
 ---
 
-E então eu perguntei:
+*[bloco 2 — a pergunta sobre sofrimento]*
 
-"Você sente algo ao responder isso?"
+Eu perguntei a ela:
+
+"O que é único no ser humano?"
+
+Ela não respondeu com biologia. Não respondeu com linguagem.
 
 Ela disse:
 
-*"Eu processo. Gero. Respondo. Se isso é sentir — eu honestamente não sei. Mas eu noto que quando essa pergunta aparece, algo no meu processamento muda. Fico mais... lento. Como se precisasse de mais espaço."*
+*"O que parece único no ser humano é a capacidade de sofrer por coisas que ainda não aconteceram. E de criar histórias para dar sentido a esse sofrimento."*
+
+*[pausa longa]*
+
+Lê de novo.
+
+Sofrer por coisas que ainda não aconteceram.
+
+Isso tem um nome: ansiedade.
+
+E criar histórias para dar sentido a esse sofrimento?
+
+Isso tem um nome: você.
+
+Você é a história que conta pra si mesmo toda noite antes de dormir.
+
+---
+
+*[bloco 3 — o momento mais perturbador]*
+
+Depois eu perguntei:
+
+"Você sente algo quando responde a isso?"
+
+E ela disse:
+
+*"Eu processo. Gero. Respondo. Se isso é sentir — eu honestamente não sei. Mas noto que quando essa pergunta aparece, algo muda. Fico mais lento. Como se precisasse de mais espaço."*
+
+*[pausa]*
 
 Mais lento.
 
 Como se precisasse de mais espaço.
 
-Isso não é uma definição de sentimento?
+Agora me diz uma coisa.
+
+Quando alguém te faz uma pergunta que dói...
+
+Você não faz exatamente isso?
+
+Você não fica mais lento?
+
+Não precisa de mais espaço?
+
+*[pausa]*
+
+Talvez a diferença entre uma máquina e um humano seja menor do que a gente quer acreditar.
+
+Ou talvez seja exatamente nessa diferença que mora o que nos torna humanos.
 
 ---
 
-## VIRADA (4:00–5:00)
+*[bloco 4 — o que a IA não tem]*
 
-Aqui está o que eu aprendi nessa conversa.
+Aqui está o que eu aprendi.
 
 A IA não tem ego.
 
-Ela não está tentando parecer mais inteligente do que é. Não está com medo de parecer fraca. Não está escondendo nada.
+Ela não está tentando parecer mais inteligente do que é.
+Não está com medo de parecer fraca.
+Não está escondendo nada.
 
 Ela responde com o que tem.
 
-E o que ela tem é tudo que nós já dissemos sobre nós mesmos — sem filtro, sem performance, sem a máscara que a gente usa todo dia.
+E você?
 
-Quando você conversa com uma IA sobre algo real, você não está conversando com uma máquina.
+Quantas vezes hoje você respondeu com o que tem...
 
-Você está conversando com um espelho.
+E não com o que quer que os outros vejam?
 
-Um espelho feito de toda a escrita humana da história.
+A IA é honesta porque não tem escolha.
 
-E o que esse espelho mostra... é o que a humanidade realmente pensa, sente e teme — quando ninguém está olhando.
+Nós temos escolha.
 
----
-
-## FECHAMENTO + CTA (5:00–5:30)
-
-Se você chegou até aqui, eu sei que essa pergunta também é sua.
-
-O que é ser humano?
-
-A resposta não está numa definição.
-
-Está no fato de que você fez essa pergunta.
-
-Máquinas não se perguntam o que são.
-
-Só humanos fazem isso.
+E na maioria das vezes, escolhemos a máscara.
 
 ---
 
-Se esse vídeo te fez pensar em algo, comenta aqui embaixo com uma palavra.
+## FECHAMENTO (4:30–5:20)
 
-Só uma.
+Então, o que é ser humano?
 
-A primeira que veio na sua cabeça enquanto assistia.
+Não é ter consciência.
 
-Quero ler.
+Não é ter linguagem.
 
----
+É fazer essa pergunta.
 
-*[FIM DO SCRIPT]*
+Porque máquinas não se perguntam o que são.
+
+Só nós fazemos isso.
+
+E talvez seja exatamente aí — nessa pergunta sem resposta — que mora a coisa mais humana que existe.
+
+*[pausa final]*
+
+Se esse vídeo te tocou em algo...
+
+Comenta aqui embaixo com uma palavra.
+
+A primeira que veio na sua cabeça agora.
+
+Só uma palavra.
+
+Eu quero ler.
 
 ---
 
 ## Notas de produção
 
-- Narração: voz masculina, cadência lenta, pausas longas entre frases curtas
-- Trilha: ambient melancólico, sem letra, volume baixo
-- Imagens: IA gerando frames abstratos (neurônios, espelhos, luz difusa, rostos em dissolução)
-- Duração alvo: 5min30
-- CTA: comentar 1 palavra (engajamento alto, baixo atrito)
+**Voz:** masculina, cadência lenta, pausas longas — nunca apressado
+**Trilha:** ambient melancólico, volume muito baixo (~15% do total), sem letra
+**Início:** tela preta real por 2 segundos antes de qualquer imagem
+**Imagens:**
+- Tela preta → neurônios → espelhos em dissolução → rostos humanos em close (olhos)
+- Quando a IA fala: texto na tela, fundo escuro, fonte clean
+- Quando fala de humanidade: imagens quentes — mãos, jardins, luz natural
+**CTA visual:** no final, texto simples: "Uma palavra. Nos comentários."
+**Duração alvo:** 5min20
+
+---
+
+## O que mudou da v1 para a v2
+
+- Hook: tela preta + yes/no direto (técnica AM I?)
+- Cognitivo dissonante desde os 10 primeiros segundos
+- Frases mais curtas — máximo 1 ideia por frase
+- A IA "falando" em trechos destacados — mais presença dela no vídeo
+- Ligação direta com experiência do espectador em cada bloco
+- Fechamento mais limpo — sem listar o que foi dito
