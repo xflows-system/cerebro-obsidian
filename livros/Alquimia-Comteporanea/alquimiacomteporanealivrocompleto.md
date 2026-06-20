@@ -1,0 +1,1739 @@
+
+
+
+
+
+
+
+
+ALQUIMIA CONTEMPORÂNEA 
+Vencer o mundo e viver na riqueza 
+NOTA INTRODUTÓRIA 
+Neste pequeno livro são expostas uma filosofia e uma prática que podem 
+revolucionar a sua vida. Leia-o pelo menos três vezes, para que as idéias aqui 
+reveladas comecem realmente a fazer parte do seu modo de viver, conduzindo
+o assim à libertação da perigosa ilusão de que lá fora exista um mundo 
+separado da sua consciência. Leve-o sempre com você como se fosse um 
+amuleto, porque a Força que emana destas páginas pode te ajudar a alcançar 
+o seu objetivo, ou a encontrar um... 
+Salvatore Brizzi 
+1. A VISÃO DAS MÁSCARAS  
+Quando encontrei pela primeira vez Victoria Ignis, na metade dos anos 90, eu 
+tinha uns 25 anos e ganhava a vida trabalhando como estoquista para uma 
+grande indústria de alimentos. Por um certo tempo fui um código de barras 
+perfeitamente incorporado na engrenagem  do sistema “produz – consome - 
+rompe”. Mas já há vários anos havia me tornado um código de barras sempre 
+menos útil, sempre menos legível. Tinha perdido toda a confiança na 
+possibilidade de encontrar um sentido para a minha vida: o trabalho, o esporte, 
+o amor, a família...tudo me parecia inútil, e à minha volta eu também não 
+conseguia ver exemplos de pessoas que fossem realmente realizadas. 
+Primeiro o esporte, praticado há anos de forma obsessiva, depois o álcool e as 
+drogas me representavam o refúgio de uma realidade que já tinha se tornado 
+insuportável e ao mesmo tempo irremediável. A depressão, natural 
+conseqüência da incapacidade de dar um sentido à realidade, tornou-se a 
+minha companheira durante o dia, enquanto à noite, a dor de ter que viver 
+como um fantoche, vindo ao mundo por acaso, vinha escondida por algumas 
+horas de alteração de consciência por efeito de drogas. A dor estava cada vez 
+mais insuportável – às vezes mesmo sem estar mascarado pelas drogas – 
+quando a minha falta de objetivo pessoal e de sentido na vida chegou a 
+alcançar a conscientização de que aquela situação pudesse ser idêntica 
+também para muitos outros, que provavelmente era assim para todos, e que a 
+vida fosse já por ela mesma uma derrota, mesmo que você tenha nascido na 
+família de um rico Industrial ou de um ator de Hollywood. 
+À noite eu ia dormir esperando não mais acordar. Queria me esconder, me 
+anular, escorregar docemente na inconsciência mais completa, no indefinido 
+nada. Não queria mais pensar em quem eu era, nem refletir sobre a minha 
+condição. 
+Quando um ser humano descobre a sua impotência, quando enxerga a sua 
+mecanicidade, a sua ausência de um real querer, quando a existência o coloca 
+de lado, o sufoca, o esmaga, não há saída. Criam-se então condições ideais 
+para que possa acontecer algo de importante. Não foi por acaso que 
+justamente naqueles anos de escuridão e sofrimento, me aconteceu uma 
+experiência incomum: uma noite, enquanto estava em um bar com alguns 
+amigos, pela primeira vez, simplesmente pude enxergar com clareza todas as 
+suas dores.  Estávamos em um dos tantos bares de Torino (é uma das cidades 
+onde há mais bares da Europa), sentados a mesa. Falava-se de coisas 
+estúpidas, contava-se piadas, e ria-se liberadamente. Para um olhar desatento 
+podia parecer uma das tantas reuniões de amigos, em um dos tantos locais, 
+uma noite como tantas outras. Pois saímos à noite justamente para isso: nos 
+divertir, beber um pouco, talvez conhecer um lugar novo, gente nova... e depois
+voltarmos a casa para dormir. E na manhã seguinte recomeçar o trabalho: oito 
+horas em um escritório, fábrica, ou dirigindo um carro para tentar vender 
+alguma coisa a alguém, não vendo a hora que chegue a noite para sair com os 
+amigos ou voltar a casa para encontrar com a família. Um dia esperando para 
+que chegue a noite, uma semana esperando para que chegue o fim-de
+semana, um ano esperando para que cheguem as férias, trinta anos esperando
+para que chegue a aposentadoria, uma vida esperando para que chegue a 
+morte... libertadora. Tudo programado para fugir da dor infinita de uma vida 
+sem objetivo, sem apoios, sem explicações. 
+De repente, como se dentro de mim se abrisse uma janela, comecei a ver 
+segundo uma nova ótica: as primeiras conseqüências foram o tempo que foi se
+lentificando e as cores ficando mais lúcidas e brilhantes. Era como se 
+tivesse mais luz no local, mas essa luz vinha de dentro dos objetos e das 
+próprias pessoas. As vozes, todas as vozes e todos os sons, até a música ficou
+mais longe e indistinguível. Naquele estado de consciência ‘suspenso’, as 
+expressões dos meus amigos, assim como aquelas dos outros, finalmente se 
+mostraram realmente como eram: foi naquele momento que de suas risadas 
+saíram assustadoras notas de dor. Não riam, mas batiam os dentes no esforço 
+de segurar o choro. Não contavam piadas, mas gritavam sua raiva. Não se 
+davam tapinhas amigáveis nas costas, mas descarregavam a própria 
+agressividade reprimida nos outros. Nenhum deles estava satisfeito. 
+Eram todos, homens e mulheres, empenhados em dar uma aparência de 
+credibilidade e originalidade às suas máscaras. Nenhum deles era feliz. Claro, 
+se eu tivesse perguntado tenho certeza de que teriam respondido: “- Mas não 
+dá pra ver que sou feliz? Estou rindo, então sou feliz, somos todos felizes! 
+Bebemos e rimos em companhia, beba você também! Por que essa cara triste?
+Não estrague sua noite...” 
+Nos reuníamos para enganarmos a nós mesmos, para mostrar que éramos 
+alguém, que possuíamos uma identidade, para fingir que não tínhamos 
+fracassado na vida. Um bando de desiludidos infelizes que se sentiam em 
+dever, mesmo com si mesmos, de rir e brincar toda noite. Tínhamos que vestir 
+máscaras de felicidade, porque admitirmos de não sermos felizes, significaria 
+admitir de haver falido! 
+Não eram simpáticas noites com amigos, nunca foram, eram tentativas de fugir
+da dor de viver sem um verdadeiro objetivo, sem um sonho. As férias de verão, 
+a aposentadoria e uma família que imita aquela da propaganda podem 
+substituir um verdadeiro objetivo quando o ser humano se encontra em um 
+estado hipnótico. À medida que começa a acordar, a recuperar-se da 
+indiferença quotidiana, estes paliativos não bastam mais, e tornam-se frágeis e 
+inconsistentes. 
+“Às massas, são dados pontos de referência externos, não internos. E é normal
+que seja assim, porque a massa não consegue curar-se dentro, é extro-versa 
+(= voltada ao externo) por 
+natureza. Um Deus, um Messias, o dinheiro, a carreira, o Estado, a Ciência e 
+também a família, são todos pontos de referimento externos, seguranças 
+ilusórias externas. A massa não sente ainda a voz da sua interioridade. Só 
+pode acreditar em alguma coisa no plano mental, confiar em alguém que a 
+guie, mas não pode ainda sentir a Força do próprio S er . Olha só, não estou 
+falando mal do povo, escrevo somente suas características para que você 
+possa escolher onde se colocar. Só alguns indivíduos podem perceber a Força – e são milhares espalhados pelo mundo – mas devem ser orientados e 
+educados individualmente. Quando chega uma época, como a nossa, em que 
+todos os pontos de referimento externo entram em colapso, a massa, então 
+chega a um impasse: começar a olhar-se dentro... ou enlouquecer. Alguns 
+conseguirão encontrar o Coração, a Força, a Realeza dentro de si. Muitos não 
+conseguirão. As conseqüências serão caos social, epidemias, delinqüência e 
+loucura” 
+Assim teria me dito alguns meses mais tarde Victoria Ignis. Mas naquela noite, 
+naquele bar, ela ainda não existia, não fazia ainda parte da minha vida, e eu 
+fiquei durante duas horas seguidas aterrorizado por aquela minha visão 
+intuitiva. Por vários dias fiquei submerso como nunca em uma sensação de 
+desconforto, de um senso de impotência e de raiva. Sentia a dor de estar, de 
+ser vivo e consciente, de ter sido jogado na matéria sem ter pedido pra que 
+isso acontecesse. É uma dor infinita, interminável. 
+Naquela noite eu tinha demonstrado a mim mesmo que eu estava com razão. 
+Não era só eu o doente, os outros também sofriam de uma falta de objetivo 
+crônica, talvez ninguém fosse imune à ela. Sofriam em silêncio em frente à 
+televisão, enquanto abraçavam seus filhos, faziam amor ou enquanto riam no 
+bar com seus amigos, mas na verdade a dor não os deixava nunca. A 
+única diferença entre eu e eles é que agora eu estava pronto: a consciência da 
+minha condição e a honestidade comigo mesmo haviam me deixado pronto 
+para algo de novo. Eu ainda não sabia, mas estava pronto para a Escola. 
+É a Escola que te encontra, não é você a encontrá-la. Procurar 
+desenfreadamente por escolas, mestres e guias, viajando pelo Globo, como 
+fazem milhares de aspirantes discípulos “New Age”, é pura tolice. A Escola se 
+apresentou a mim sob a figura de Victoria Ignis, e aquela mulher foi tudo o que 
+eu conheci da Escola: nenhuma estrutura oficial, nenhum grupo, nenhuma 
+publicação. A Escola transformou o meu modo de ver a vida me revelando o 
+engano dos enganos, o pecado dos pecados: acreditar que possa existir um 
+mundo fora de nós capaz de nos influenciar.  
+Já há séculos, um grupo de audazes – de ‘Mônacos Guerreiros’ – descobriu 
+que este planeta é uma armadilha psicológica, e se reúnem em segredo para 
+elaborar um plano de fuga. Seu chefe se chamava Draco Daatson, e eles 
+viviam no escuro da mais escura época Medieval. Draco Daatson – ou seria 
+melhor chamá-lo de Prometheo, capaz de roubar o fogo dos Deuses – 
+entendeu que os seres humanos não são nunca prisioneiros dos outros 
+homens, mas sim de uma psicologia, do seu próprio modo falso de 
+compreender a vida. Para haver qualquer real esperança de escapar, não se 
+deve então combater materialmente contra alguém ou alguma coisa. Não 
+basta, por exemplo, destruir o governo, mas é necessário trabalhar em uma 
+direção intro-versa (= voltada ao interno) para mudar a própria psicologia. A 
+realidade externa ficaria então obrigada a adaptar-se àquela mudança interna. 
+Draco Daatson e seu grupo entenderam a raiz do problema: a humanidade vive
+na falsa crença de que a consciência do indivíduo esteja localizada somente 
+dentro do seu corpo, e que fora, exista um mundo separado e objetivo, no qual 
+possa alcançar perigos ou satisfações. 
+Uma vez compreendida a fundo a origem do problema, liberar-se foi só uma 
+questão de tempo. Portanto, aplicando um método e ajudando-se mutuamente,
+esses primeiros heróis se libertaram da armadilha psíquica e fundaram 
+diversas Escolas secretas, que pudessem transmitir também aos outros, esse 
+único e fundamental conhecimento: nós acreditamos que somos 
+separados do mundo, quando, ao contrário, o mundo está dentro de nós e é 
+uma projeção totalmente nossa. 
+Se vocês estão lendo este livro é porque ao tal antigo e fundamental 
+conhecimento – mesmo que já tenham lido em mil textos e escutado em 
+diversas histórias – ainda não querem acreditar. 
+Com o passar dos séculos, tais escolas se diferenciaram cada vez mais e 
+perderam contato entre elas, tanto que hoje é quase impossível reconhecêlas 
+em uma matriz única. De tempos em tempos alguém pega a tarefa de trazer à 
+luz tal conhecimento. 
+2. DEPENDENTE OU EMPREENDEDOR 
+Alguns dias após aquela experiência no bar, vagava à noite num grande 
+parque perto da minha casa. Eu havia organizado algumas hora antes, com 
+alguns amigos, uma cerimônia mágico-alquímica, inspirada um pouco na magia
+ocidental e um pouco nos rituais Xamânicos utilizados entre os povos da 
+Amazônia. No decorrer desta nossa experiência, inalamos um pó marrom de 
+efeitos psicotrópicos muito potentes¹, conhecido como raiz de Paricá ou Virola 
+(uma árvore da Amazônia, em particular a Virola Theiodora). A Virola contém 
+DMT (Dimetiltriptamina), talvez a substância psicodélica mais potente em 
+absoluto. Como novatos bruxos e bruxas, escondidos entre as árvores do 
+parque, fizemos um círculo mágico na terra e, ao lado, um triângulo mágico, 
+utilizando uma faca da cerimônia. Nas fendas formadas espalhamos pó de 
+sulfeto de mercúrio. Os meus amigos, muito mais espertos do que eu, 
+recitavam fórmulas mágicas com o objetivo de invocar ‘presenças’ que 
+pudessem fornecer indicações sobre o significado de nossas vidas. 
+Nós estávamos sentados dentro do círculo mágico, enquanto as entidades 
+manifestavam-se ao interno do triângulo. Cada um de nós viu aparecer nas 
+fronteiras do triângulo alguma coisa diferente: uma das meninas viu o tio que a 
+havia molestado quando era pequena; um amigo conversou com o pai, com o 
+qual não conversava há tempos, alguém se comunicou com entidades 
+extraterrestres e alguém foi aterrorizado pelos seus demônios...que 
+são sempre interiores. Cada um recebeu o que lhe era mais útil naquele 
+momento de sua vida. Por volta das 3 horas da manhã, enquanto o efeito da 
+planta sagrada passava, seguia sozinho em direção à minha casa, que se 
+encontrava após o parque, quando no escuro entre as árvores me apareceu 
+pela primeira vez a figura de Victoria Ignis. No início me parecia só uma 
+sombra, um ectoplasma, depois, quando chegou mais perto, consegui enxergar
+melhor seu rosto, iluminado por uma das lâmpadas do parque. Demonstrava 
+menos de 40 anos e vestia um elegante tailleur cinza, cabelos negros, corpo 
+carnudo e aspecto muito simpático. Como se estivesse realmente me 
+esperando, se moveu lentamente na minha direção, sem pressa, segura de si, 
+mesmo estando sozinha em um parque pouco iluminado, em plena noite. “As 
+drogas no passado serviam para fazer-se penetrar em novos mundos, 
+dimensões desconhecidas da existência. Era um meio sagrado utilizado pelos 
+exploradores da consciência para se reconectar ao seu Ser. „Psicodélico‟ vem 
+do grego psiche e delos : „ revelador da alma‟ . Hoje, as drogas servem 
+somente para escapar da quotidianidade, para esconder o desespero do existir 
+sem um objetivo. Tornaram-se o símbolo da derrota, da concessão do próprio 
+poder nas mãos do mundo externo. Não é por acaso que antigamente tais 
+substâncias ficassem sob custódia de Xamanos e Sacerdotes, enquanto que 
+hoje são propriedade de organizações mafiosas.”  
+Disse a mulher quando estava perto de mim. Sorria e era cordial. Com aquele 
+seu vestido elegante parecia que tinha apenas saído de alguma festa privada 
+que acontecia nas redondezas. Talvez estivesse só pegando um pouco de ar 
+no parque por causa da fumaça, do álcool, ou então era uma prostituta que 
+estava tentando me atrair (se bem que vestida assim, naquela zona eu nunca 
+tinha visto). Em todo caso, para deixar tudo claro fui logo dizendo: “- Olha, eu 
+não tenho dinheiro. Se está aqui por isso se deu mal. Faço um trabalho do cão 
+e ganho o quanto me basta para sobreviver”. “É justo que seja pobre, porque 
+você é um escravo... é um escravo interiormente, um dependente. E não pode 
+obter ao externo o que não é ainda internamente.” 
+Estava pronto para qualquer resposta, estava já esperando que por detrás das 
+árvores pudesse aparecer um de seus cúmplices para me ameaçar e pegar as 
+poucas notas que eu havia no bolso, mas uma resposta do gênero eu não 
+esperava. - Do que você está falando? Disse, apenas voltei a mim. – O que quer dizer 
+com isso? Não sou escravo de ninguém. – Eu resmungava como um bêbado e 
+estava difícil de focar seu rosto, mas continuei mesmo assim: - Se não sou rico 
+é porque vivemos em uma sociedade capitalista onde se busca somente o 
+lucro, o dinheiro. É uma luta entre gigantes onde poucas famílias de eleitos 
+comem e todos os outros são engolidos.  
+¹Nota da Tradutora - Não incentivo nem desincentivo o uso de nenhuma 
+substância. Acho que cada um tem a sua consciência e as suas necessidades. 
+Mas se alguém já fez o uso de tais substâncias (como tantos), que resultou em 
+informações preciosas como as que se encontram neste livro, porque não 
+aproveitar destas descobertas, e tentar praticá-las, e trazê-las à consciência, 
+naturalmente, ao invés de sair usando substâncias por aí? Talvez não seja tão 
+simples como usar substâncias, com certeza é um longo caminho a ser 
+percorrido, com muita determinação e vontade. Mas quem disse que também 
+usando as tais substâncias se chega ao objetivo? Não são as substâncias que 
+vão nos poupar do esforço. Elas podem até nos ajudar a enxergar mais rápido, 
+mas não resolvem o resto, não transformam o “pó em ouro”. Acho que cada um
+tem um momento certo para enxergar, e estamos em geral, em um momento 
+muito propício para isto. Eu particularmente prefiro o caminho natural, cada um 
+na medida de sua compreensão e necessidade de aprendizado. 
+A mulher chegou mais perto, há menos de um metro de mim, e me fixou nos 
+olhos: “O mundo é um reflexo seu. Você o cria projetando fora o que é dentro. 
+Está fazendo isso mesmo neste momento, conscientemente ou 
+inconscientemente, não importa. Aquilo que parece acontecer a você, na 
+verdade acontece dentro de você. Não encontre 
+justificativas para a sua pobreza em um mundo externo que você mesmo está 
+criando a cada instante. Você é o único responsável por isso. Não é rico na 
+matéria somente porque ainda não conhece a riqueza do seu ser. A 
+dependência não é uma situação trabalhista, mas um estado interior, um 
+estado da sua essência. Você é dependente psicologicamente, e como 
+conseqüência disto, o é também materialmente. O estado de dependência 
+reflete uma mente preocupada com o futuro, que vive na dúvida e na 
+insegurança. Empreendedor e dependente parecem somente dois papéis 
+existentes na sociedade, a expressão de duas classes sociais, mas na verdade
+são dois estados de ser bem precisos. O seu papel na sociedade está 
+intimamente ligado ao seu grau de Realeza
+interior. Você depende porque não assumiu ainda a sua responsabilidade 
+individual, depende porque tem medo da vida e daquilo que te espera, depende
+porque é mais cômodo seguir do que conduzir. Mas lembre-se de que a vida 
+não te reserva nenhuma surpresa. Todos os acontecimentos ao seu redor são 
+desejados por você, e só você os cria, durante meses, anos, com o seu modo 
+de pensar, com as suas emoções, com a sua ausência de sonhos e 
+aspirações. O problema deste mundo é que é um mundo de dependentes, 
+onde poucos são autênticos líderes, empreendedores, sonhadores, artistas, 
+gênios. Você não é pobre porque há pouco dinheiro no bolso, mas porque não 
+tem um sonho. Esta é a única verdadeira pobreza, e é daí que deriva a pobreza
+material.” 
+Uma mulher sozinha no parque, à noite,... mas era eu que estava com medo 
+dela, não ela de mim. Recomeçou a falar, prendendo novamente a minha 
+atenção: 
+“Depender significa ter desistido de criar. Quem não tem um sonho é destinado 
+a seguir quem o tem. E, ao contrário, quem tem uma idéia, quem tem um 
+sonho, não depende, mas cria. Quem tem um objetivo, torna-se, somente por 
+isto, magnético e atrai à sua volta, os colaboradores, os dependentes, os 
+clientes, os amigos... todos aqueles que serão atraídos por ele como ímãs e o 
+ajudarão a realizar seu sonho. Presta atenção, não estou dizendo que 
+depender de alguém seja errado, porque se não existissem empregados, 
+dependentes, operários, colaboradores... nenhum sonho poderia tornar-se 
+realidade. Só estou te fazendo notar a diferença entre essas duas condições, 
+que são dois estados do ser. Será você, depois, a escolher. Além disso, o 
+verdadeiro empreendedor, se for um empreendedor do „Ser‟, e não somente de
+aparências, não se limita a dar trabalho, mas educa os seus colaboradores 
+para que desenvolvam também a capacidade de sonhar e de tornarem-se 
+autônomos um dia. O verdadeiro empreendedor cria outros empreendedores 
+porque a existência é abundante, e tem lugar para todos. Se você ficar 
+consciente do fato de que o sonhador e o dependente representam somente 
+dois degraus diferentes da escada evolutiva, então poderá fazer uma escolha, 
+uma verdadeira escolha. Pergunte à sua essência em qual degrau da evolução 
+você quer se colocar.” 
+Porque me estava acontecendo tudo aquilo? Porque aquela mulher, e, 
+sobretudo, aquele discurso, que de um lado destoavam com as minhas crenças– literalmente me violentavam – e de outro lado me atraiam, como se eu 
+sentisse profundamente essa necessidade? Acredito que qualquer um 
+responderia que preferiria ser um sonhador e um criador, mas a vida às vezes 
+nos redimensiona, a sociedade corta as nossas asas, mata nossos sonhos, as 
+nossas aspirações mais elevadas. Eu sempre fui um ativista, um contestador: 
+luto contra um governo que nos oprime e nos derruba, luto contra uma religião 
+que nos cria senso de culpa, contra uma medicina que mais nos faz ficar 
+doentes do que nos cura, contra famílias de bancários que estragam o mundo 
+e decidem as guerras... – repousei, tentando resistir ao seu ataque - um ataque
+que era voltado diretamente à minha essência. “Você ainda está procurando 
+justificativas externas para o seu fracasso, pela sua falta de vontade, pelas 
+suas poucas idéias e sonhos. Você criou pra si mesmo um mundo malvado 
+onde realizar os seus sonhos é impossível por causa de alguma coisa ou de 
+alguém que trama contra você. Mas o único artista das suas vitórias e derrotas 
+é você mesmo. Não delegue o seu poder ao externo... nunca! Você está 
+idolatrando um mundo externo, que você acredita que haja um poder infinito 
+sobre você. O estado, a religião, a medicina, a ciência, os banqueiros, os 
+chefes, para você são divindades, que algumas vezes aceita e outras recusa e 
+combate com todas as suas forças, mas que em ambos os casos considera 
+mais potente do que você. Somente com o ato de combatê-los, dá à eles um 
+poder que eles não têm. Quando o operário luta contra o patrão, o patrão já 
+venceu, porque foi reconhecido como tal. Lembre-se: somente um escravo luta 
+para liberar-se de um patrão. Cada vitória do escravo-operário não pode ser 
+mais do que parcial e provisória. A história demonstra isso de maneira clara: 
+como conseqüência de certas lutas, aparentemente parece que o operário 
+tenha conquistado alguma coisa, mas se não ocorreu também uma 
+transmutação de sua essência, uma liberação sob o plano psicológico, cedo ou
+tarde perderá o que pensava haver conquistado e ainda mais. Que um 
+operário tenha vencido ou perdido, continua sempre um operário. Quem o 
+desfruta fica contente mesmo quando é temporariamente derrotado, porque 
+sabe que deste modo reforçou no operário a convicção de ser um operário, e é 
+isso que conta, não o fato de que venceu ou perdeu. Deste modo, os 
+respectivos papéis continuam sempre os mesmos. O patrão pode conceder-se 
+de perder uma batalha de vez em quando, porque sabe que assim está 
+vencendo a guerra, que é sempre uma guerra psicológica, uma guerra de 
+papéis.  Por outro lado até o patrão pode ficar prisioneiro do seu papel. Pode 
+iludir-se que operários e empregados sejam realmente existentes fora dele, 
+quando na verdade são partes dele mesmo que ele deve conseguir governar 
+para que o ajudem no seu objetivo. E se ele entra em conflito com essa parte 
+de si, torna-se também prisioneiro do seu papel, da sua classe social. Se 
+sentirá um patrão que deve se defender contra dependentes que querem 
+desfrutar do seu poder, que criam obstáculos ao seu sonho, querendo salários 
+mais altos. Mas não é bem assim que funciona. Os dependentes se encontram 
+dentro do empreendedor, e esperam ser aceitos, compreendidos, integrados e 
+amados.” 
+Minha cabeça estava girando. E não só por causa das substâncias 
+psicotrópicas que ainda desenhavam mandalas Tibetanas entre meus 
+neurônios, mas porque aquelas palavras estavam deixando em crise todas as 
+minhas convicções, todas aquelas certezas que tinham levado anos para 
+cristalizar dentro de mim. Realmente não as aceitava, resistia, não via a hora 
+daquela mulher se afastar de mim, mas ao mesmo tempo não tinha coragem 
+de ir embora primeiro. Se tivesse feito rapidamente, hoje eu seria um homem 
+tranqüilo como tantos. Mas ao invés disso, me deixei atropelar por outros 
+conceitos absurdos, paradoxais, impossíveis. 
+“Se o operário-dependente quer realmente vencer deve parar de recitar o seu 
+papel de subordinado, parar de culpar alguém e iniciar a transformar a si 
+mesmo. Deve olhar pra dentro.” 
+E apontou o dedo na minha cara: “Escute bem: deve transformar o seu ser, a 
+sua essência interior, não a sua condição exterior. A nova condição exterior 
+será fruto da sua transformação interior, exatamente como o atual estado do 
+seu ser está sendo espelhado no trabalho que está fazendo agora e no misero 
+salário que ganha através dele. Um sonhador, um Rei, um empreendedor, 
+constrói dia após dia o seu sonho, que o envolve e o satisfaz totalmente a cada
+instante e a cada inspiração. Não colocam a culpa de suas derrotas nas 
+instituições ou nos poderes econômicos. O sonhador não há patrões, não há 
+ídolos, não acredita que exista um mundo fora de si que o possa impedir de 
+criar aquilo que ele
+quer. Você é supersticioso, continua a idolatrar um mundo onde existem 
+personagens maus que te impedem de obter resultados, mas o mundo está 
+dentro de você, o mundo é totalmente criado por você, mesmo no menor e 
+aparentemente insignificante particular. Não tem ninguém lá fora que possa 
+mover um só músculo se você não quiser. O Universo mora em você, e não o 
+contrário. Quando sentir isso, aí então será livre, será um Rei, será invencível.” 
+Estava ao limite de suportar aquela situação. Aquela mulher estava me 
+acusando de ser responsável por tudo o que acontecia ao meu redor. Uma 
+responsabilidade assim eu não conseguia sustentar, ainda não conseguia. Para
+sentir-se criador do mundo é necessário possuir capacidades físicas e 
+psíquicas 
+que ainda não tinha desenvolvido. O meu sistema nervoso não estava 
+preparado para segurar aquele imenso grau de responsabilidade. “A 
+responsabilidade não é qualquer coisa abstrata, mas eminentemente física. Se 
+o seu aparato psicofísico não está pronto para administrá-la, não pode assumir 
+uma dose tão grande de responsabilidade, e conseqüentemente, de riqueza. 
+Até para administrar a riqueza, você tem que ter desenvolvido um sistema 
+nervoso adequado. Só quem consegue carregar nas costas um grau bem 
+definido de responsabilidade obtém um grau correspondente de riqueza, que é 
+sempre proporcional à responsabilidade que pode se encarregar de cuidar. 
+Vencer na loteria, herdar a empresa da família, significa ser submetido a uma 
+voltagem elétrica muito grande, é como colocar o dedo molhado na tomada: 
+levará um baita choque, e seu sistema nervoso se elevará.” 
+Eu tentei reagir: - Para mim não parece que seja assim. Conheço pessoas que 
+assumiram grande responsabilidade, mas que pra mim não possuem adequada
+riqueza, e pessoas muito ricas e potentes que não são capazes de assumir 
+nenhuma responsabilidade. “Isso é o que aparenta de fora, mas na realidade, 
+responsabilidade e riqueza são sempre correspondentes. Se você herda uma 
+empresa da sua família, mas a sua essência não é ainda suficientemente 
+madura, responsável, por um certo período pode até parecer rico e ser invejado
+por isso por quem são sabe olhar em profundidade, mas provavelmente deve 
+estar enfrentando uma prova terrível, uma prova que poucos superam: adequar
+rapidamente o seu ser e o seu grau de responsabilidade aquela nova riqueza 
+material. Quem não o faz 
+perde muito, ou deve delegar a nova responsabilidade a algum colaborador 
+que consiga administrá-la. Ganhar uma hereditariedade ou na loteria, ativam 
+internamente o seu aparelho psicofísico no limite do suportável, até que você 
+consiga adaptar o seu novo ser à sua riqueza material. Você pode herdar uma 
+empresa, isto é, uma riqueza material, mas raramente herda também o sonho 
+que
+levou à criação daquela empresa.  Uma empresa não é erguida pelo dinheiro 
+ou pelas pessoas que ali trabalham, mas exclusivamente pelo sonho de seu 
+criador e pela integridade com a qual tal sonho foi levado adiante por ele 
+mesmo, e depois pelos seus colaboradores. E isso não pode ser herdado. Uma
+coisa é administrar, outra é criar. Se você só toma conta de uma empresa 
+importante pode até parecer rico, externamente, mas não é nunca feliz dentro 
+de si. A autêntica felicidade vem da realização de si mesmo na criação. Se 
+você consegue fazer seu o sonho de quem veio antes de você, a sua essência 
+te permitirá criar, sentir-se realizado, e a empresa prosperará. Mas se você se 
+limita a somente administrar alguma coisa, a falta de criatividade secará o seu 
+ser, e a empresa perecerá. O verdadeiro líder não administra, cria.” 
+Me veio em mente a diferença que existe entre os herdeiros de hoje - que 
+“pegam carona” nos sonhos de seus antecedentes, trabalhando “por inércia” 
+nas empresas - e os fundadores da Fiat, entre Mario Cecchi Gori e seu filho 
+Vittorio entre a Ferrari durante e depois de Jean Todt. “Por outro lado, existem 
+pessoas com uma grande alma que suportam grandes responsabilidades, mas 
+aparentemente não 
+possuem um retorno em termos de riqueza. Mesmo nesse caso, se olhar bem, 
+descobre que essas pessoas sentem-se já ricas, completas e serenas e não 
+desejam nada mais. Ser rico significa ter sempre aquilo que te serve, quando te
+serve. Se você se encontra nesse estado psicológico, já é rico, 
+independentemente do tamanho da sua conta bancária. Mas pode ser também 
+que, neste caso, a chegada de uma riqueza material seja só uma questão de 
+tempo.” 
+Na verdade quando julgamos um homem estamos analisando somente uma 
+fotografia de sua vida, um instante, com todos os limites que a seguem. Em 
+alguns períodos, o ter de um indivíduo pode parecer maior do que o seu ser e 
+seu grau de responsabilidade, ou vice-versa. O seu ser pode parecer superior 
+ao seu ter. Em outras palavras, mesmo um estúpido pode, por um certo 
+período de tempo estar guiando uma nação, e ao mesmo tempo, pode 
+acontecer de um grande homem ou mulher, atravessarem um período de 
+dificuldade econômica. Isso faz com que, em alguns momentos, riqueza interior
+e exterior pareçam desconectadas uma da outra. Mas não é assim. “Draco 
+Daatson dizia: “ter e ser fazem parte da mesmíssima realidade. O ter é o ser 
+distribuído no tempo”. Ao final da vida de um ser humano, tirando e somando 
+tudo que ele atravessou, entre altos e baixos, podemos ver que a sua riqueza 
+exterior e sua essência interior correspondem sempre exatamente. O seu ter foi
+o reflexo do seu ser.” 
+Enquanto uma parte de mim tendia à uma forte resistência aquelas idéias, uma
+outra parte – a minha alma, a minha essência – entendia que estava de frente 
+a um modo totalmente novo de entender a vida, o trabalho, o dinheiro... Uma 
+giro de 360 graus naquele comum ‘bom senso’ com o qual somos educados 
+pela família e pela escola. Aquilo que me estava sendo comunicado era 
+grandioso, mas eu não conseguia ainda compreender o quanto. A sua voz veio 
+ainda a interromper o andamento dos meus pensamentos: 
+“Destingua-se. Eleve-se acima de sua espécie. Carregue totalmente a sua 
+cruz, a sua responsabilidade por aquilo que é e por aquilo que te acontece a 
+cada instante. Assim, contribuirá enormemente à evolução da humanidade. A 
+massa se perde sempre em reclamações, gosta de colocar a culpa de suas 
+desgraças em alguém. A massa aspira depender, ser cuidada, socorrida. Acha 
+insuportável o peso de sua própria cruz. A massa quer assistência social, 
+pensão: trabalha por décadas somente com o objetivo de poder, um dia não 
+trabalhar mais! Não se apaixona pelo que faz, quer segurança. Mas esta 
+segurança é uma quimera. A única segurança possível vem da mais plena 
+compreensão de que só pode te acontecer aquilo que te serve para a sua 
+evolução interior, aquilo que você precisa, aquilo que você mesmo, a um nível 
+profundo quer. Você é um Rei, porque continua a escalar o muro das 
+lamentações como um escravo?” 
+Eu... um Rei! Isso era mais do que eu podia segurar pelo momento. Só me 
+lembro que senti minhas pernas balançarem, e depois, uma escuridão. 
+3. AS EMOÇÕES CRIAM A REALIDADE 
+Encontrei Victoria Ignis novamente alguns dias mais tarde. Estava saindo do 
+trabalho e indo até o estacionamento. Estava, como sempre, imerso em 
+pensamentos destrutivos, de derrota e raiva ao mesmo tempo. Sentia-me 
+prisioneiro de um trabalho que não me gratificava, um número perdido em uma 
+lista de números, um código de barras orgânico escravo do mundo e de suas 
+regras de ‘sobrevivência’. Por um lado, sabia que estava aqui para realizar 
+alguma coisa de importante, por outro eu ainda aderia ao vitimismo coletivo, 
+ao hábito de culpar a nação, a cidade, o bairro..., que não permitem que os 
+jovens se realizem.  “O mundo que te rodeia é unicamente um reflexo do que 
+você é nesta fase de sua vida. Os lugares que você freqüenta, as pessoas que 
+encontra todos os dias, representam partes de você. Você não é um escravo 
+porque faz aquele trabalho, mas faz aquele trabalho porque dentro de você, 
+ainda há um escravo. Não confunda a causa e o efeito!” 
+Senti sua voz nas minhas costas. Não tinha percebido que ela estava me 
+seguindo. Provavelmente sabia onde eu trabalhava e vinha me encontrar na 
+saída. Suspirei. No fundo eu a temia. Meu aparelho psicofísico já tinha 
+registrado que aquela voz, aquela mulher colocava em perigo tudo o que eu 
+havia construído em décadas de vida. Era uma mulher perigosa. “Quem se 
+tornou um Rei na sua essência, cria em volta de si o próprio Reino. Quem é um
+escravo cria situações de escravidão. Mude a qualidade do seu ser e verá 
+mudar o seu ter. A realidade não é objetiva, não se encontra lá fora em algum 
+lugar. A realidade está dentro de você e muda à medida que você compreende,
+se transforma, evolui. O mundo é a cristalização das suas emoções e do seu 
+modo de pensar. É constituído de uma substância extremamente maleável. 
+Mas para que esta substância seja modificada é preciso tempo. Esta é a 
+Alquimia. Entre a mudança do seu estado interior e a correspondente mudança
+da realidade „externa‟, ocorre um certo período de tempo, às vezes muito 
+longo, e isso faz com que você não perceba imediatamente que é sempre e 
+somente você a dar vida a tudo o que te rodeia. As suas emoções e os seus 
+pensamentos recorrentes formam totalmente o seu mundo. As expressões na 
+face das pessoas que 
+encontra, o seu jeito de agir, a cor de suas roupas, os lugares que freqüenta... 
+são criados por você no mais completo e verdadeiro sentido do termo. Eles são
+matéria mutável colocada em suas mãos.” - Então porque não posso mudar a minha realidade quando e como quero? Eu 
+queria ser mais rico, mas não consigo. Queria ter um carro mais bonito, mas 
+não tenho. Eu também cheguei a ler algo sobre a capacidade do homem de 
+criar sua realidade, mas na prática não é assim, e é a prática que conta, não as
+belas filosofias. “A sua realidade é criada 95% pelo seu inconsciente. Aquela 
+sua parte ainda desconhecida por você. Eu te disse que você molda o seu 
+mundo a cada instante, mas não te disse o que quero realmente dizer quando 
+digo VOCÊ. Quem é você? Aqui está a questão fundamental. Vou te explicar 
+assim: a dualidade sujeito/objeto é ilusória. A diferença entre o sujeito que 
+percebe e o mundo que é percebido é só aparente. Você acredita ser uma 
+entidade pensante fechada dentro de um corpo, e se ilude que fora das 
+fronteiras da sua pele existe o mundo externo. Este é o engano dos enganos, a
+armadilha da qual a humanidade é escrava. Na verdade existe só a unidade, o 
+Um – aquilo que normalmente é entendido como Deus – e você é este Um. O 
+problema é que você ainda não é consciente disso, e se identifica somente 
+com uma pequena parte dele, os 5% que moram no seu aparelho psicofísico, 
+enquanto que todo o resto você esconde no seu inconsciente. Assim, os seus 
+estados inconscientes – ou seja, aquela parte do Um que você ainda não 
+conhece porque ainda não 
+englobou dentro de você – criam a sua atual realidade dia após dia, sem que 
+você perceba. À medida que você começa a identificar-se com o Um, torna-se 
+consciente de ser o único verdadeiro criador , mas se continuar se identificando
+somente com 5% do Um, através de seu pequeno aparelho psicofísico, será o 
+seu inconsciente a criar por você, e você se submete ao que acontece na sua 
+vida. Se você quer se tornar consciente de ser criador , deve pular do Eu ao 
+Um, da parte ao Todo, dos 5 aos 100%, da circunferência ao centro... Deve 
+tornar consciente o seu inconsciente. Só então sentirá que é realmente o único 
+verdadeiro artista de tudo o que te rodeia. As pessoas que encontra, os 
+eventos que assiste a cada dia não são nada mais do que projeções do seu 
+inconsciente, ou seja, projeções daquela parte do Um que você ainda não 
+consegue perceber como suas , e que, então manifesta como se existissem 
+fora de você. Isso ocorre para que, assim você fique consciente de sua 
+existência e possa englobá-las, integrá-las, compreendê-las (cum-prehendere 
+= „prender dentro de si‟). Cada vez que você consegue sentir que um evento 
+externo é na verdade criado por você, mais um pedaço
+é subtraído do seu inconsciente e integrado na sua consciência, permitindo 
+assim uma expansão da mesma. Integrando pedaço por pedaço, se tornará 
+consciente de ser Um, de ser plenamente íntegro em si mesmo, um verdadeiro 
+indivíduo (=não dividido). Esse não é o mesmo discurso espiritual de sempre. 
+Aqui não tem nada de espiritual ou religioso. Estou te falando de como age a 
+realidade e do que você é em relação ao Universo: unus - vertere
+significa ser voltado ao Um, à integridade do ser. Não se trata de 
+rezar ou meditar na posição de Lótus. Trata-se de entender que a sua 
+consciência é vítima de um engano: você acredita ser separado do mundo 
+quando na verdade você é Um Todo com ele. Você está doente de separação e
+aspira unir-se com o Todo... não tem nada de religioso nisso. É tudo muito 
+pragmático.” 
+Aquele dia não tinha ainda instrumentos para compreender plenamente a 
+enormidade do que estavam me ensinando. Somente muitos anos depois, 
+entendi o precioso presente que Victoria Ignis estava me dando. Suas palavras 
+representavam a chave para entender até um fenômeno que está acontecendo 
+nos últimos anos. Multiplicam-se mais e mais livros que falam sobre o 
+desenvolvimento do potencial humano: como ficar rico, como ter sucesso, 
+como desenvolver a capacidades de líder, como se tornar criador da própria 
+realidade... Seminários que prometem fazer “descobrir o poder que existe em 
+você”, crescem como fungo. Em particular, vêm à tona grandes sucessos como
+o livro “O segredo: a ciência do enriquecer, Attractor Factor (A lei da atração), 
+The Key... São textos úteis que falam de princípios esotéricos bem precisos, 
+como por exemplo, a lei da atração. Mas normalmente não se entende o 
+princípio base: não é procurando satisfazer os desejos do meu ‘pequeno Eu’ 
+que me tornarei o criador do meu mundo, mas fazendo justamente o contrário: 
+tornando-me consciente de que, a minha situação atual e tudo o que me 
+acontece são coisas que Eu desejei. Se não aceito, e não chego a sentir dentro
+de mim que só eu sou o criador daquilo que tenho neste momento da minha 
+vida, não terei nunca algo diferente no futuro. Não posso me colocar de repente
+o objetivo de modificar minha condição econômica, porque devo primeiro 
+aceitar e ‘cumprehender’ que a quantidade de dinheiro que hoje está em minha
+posse, materializei eu mesmo, com base naquilo que preciso para o meu 
+caminho evolutivo, e naquilo que sou capaz de administrar hoje, em nível do 
+ser. 
+Se eu acolho profundamente esta verdade, ocorre em mim uma elevação do 
+ser, e começo a sentir-me o Rei, o regente do meu Reino, abrindo as portas 
+para a possibilidade de, em uma fase sucessiva, criar aquilo que quero. O 
+problema de tantas pessoas é que continuam a imitar o Rei, pois continuam a 
+pensar com a psicologia do escravo; colocam o carro na frente dos bois. Se eu 
+recuso a condição na qual estou agora e não acredito que ela foi desejada por 
+mim, quer dizer que ainda estou pensando segundo um escravo. Como poderá 
+criar sua realidade futura se não sente que está criando também a atual? Mas 
+quando finalmente sou capaz de ver que todo o mundo está dentro de mim e 
+que eu o estou criando, o problema de ganhar mais dinheiro ou ter mais 
+sucesso nem existe. Aquilo que eu desejo coincide, então, com o que 
+acontece, em uma sucessão perfeita de eventos onde eu tenho sempre o 
+dinheiro que me serve para levar adiante os meus projetos. “Não se trata de 
+fazer acontecer aquilo que deseja, mas de desejar aquilo que te acontece. 
+Quando entender que tudo o que te acontece foi desejado inconscientemente 
+por você durante muitísssimo tempo, automaticamente, você se identifica com 
+o Todo. Daquele momento em diante, aquilo que você quer e aquilo que você 
+é, coincidem - se. Usar a vontade focada para realizar um desejo próprio é 
+magia negra. Todos os homens praticam a magia negra em todas as medidas e
+sob várias formas, sem nem saber. Na magia branca não se „deseja‟, mas se 
+segue a verdadeira Vontade , ou seja, a vontade do Todo. Mas para agir 
+segundo esta vontade, precisa primeiro identificar-se com o Todo.”
+Estas foram as palavras de Victoria Ignis quando conversamos há alguns 
+anos. 
+Acredito que tal conceito deva ser trazido ao conhecimento dos leitores deste 
+tipo de livro, porque senão, podem desiludir-se. Na verdade conheço várias 
+pessoas que leram The Secret, mas não conseguem um carro novo e nem 
+ficam ricos. Os mesmos autores destes best sellers, que estão sim fazendo um 
+ótimo trabalho em favorecer a expansão da consciência, perceberam que 
+muitas pessoas não conseguem obter os resultados esperados. Joe Vitale 
+escreveu The Key justamente para ajudar às pessoas que não conseguiram 
+resultados com o The Secret. Mas é fundamental que as pessoas entendam 
+que antes de tentar modificar a realidade externa através do uso da vontade, é 
+necessário a compreensão de que não existe uma realidade externa. 
+Imaginemos que eu exprima o desejo de me tornar mais rico. Exatamente 
+porque existe uma lei da atração, a vida certamente responderá a este meu 
+desejo, mas não é certo que responda como eu espero. O objetivo de cada um 
+de nós é aquele de voltar a nos identificar com o Todo, enquanto que a 
+dualidade sujeito/objeto é só ilusória. Para conseguí-lo, devo parar de 
+considerar o dinheiro como algo de externo a mim. Se eu me torno rico sem ter 
+primeiro compreendido que o dinheiro que está sob minha possessão se 
+encontra dentro de mim e corresponde à elevação do meu ser, o meu “ficar 
+rico” reforçará em mim a crença de que o dinheiro seja realmente algo de 
+externo, e que eu posso ter mais dinheiro agindo simplesmente com a vontade 
+de fora de mim. Mas a realidade é que o dinheiro se encontra ao interno da sua
+consciência, e sua quantidade depende da grandeza e da integridade desta 
+consciência. 
+Justamente porque eu quero, inconscientemente, a minha própria evolução, me
+impedirei de ficar rico até que eu consiga compreender que a riqueza depende 
+do ser, e que haver é só uma conseqüência de ser. Então, assim que eu tenha 
+expressado conscientemente o desejo de me tornar rico posso obter, como 
+resposta, um enriquecimento, ou mesmo uma perda de dinheiro! O meu desejo
+será de qualquer forma atendido, porque se continuo novamente desiludido 
+pela minha tentativa exterior de busca à riqueza, cedo ou tarde começarei a 
+aceitar aquilo que tenho, o que me fará efetivamente mais rico e mais capaz de
+criar a minha realidade. Mas mesmo que o processo seja sempre evolutivo, 
+não é este o resultado que a maioria das pessoas espera quando lêem um livro
+sobre a lei da atração. *** 
+Mas, voltando àquilo que me explicava Victoria Ignis naquele dia, na saída do 
+trabalho.  “O mundo que há em frente a seus olhos neste momento – disse 
+fazendo um enorme gesto com os braços, indicando o caminho, as pessoas, os
+carros – é a representação do seu passado, não do seu presente. A sua 
+namorada, o seu trabalho, a sua conta no banco, espelham aquilo que você 
+pensou, sentiu, aquilo que você foi, nos 
+meses e anos passados da sua vida. Se você tivesse um acidente neste 
+momento, ou fosse diagnosticada uma doença, estes fatos não espelhariam o 
+seu presente, mas o seu passado. Um acidente ou uma doença vêm 
+cuidadosamente preparados dentro de você por anos, sem que você perceba.  
+As suas emoções negativas, os seus incômodos, reclamações e pensamentos 
+obsessivos criam as doenças, as dificuldades e os acidentes. O seu falso modo
+de compreender a vida hoje já está te preparando para as suas desgraças 
+futuras. Emoções negativas e reclamações solidificam-se com o tempo, 
+cristalizam-se dentro de você graças à repetição. Tornam-se agregados 
+psíquicos, verdadeiras entidades que escorregam no inconsciente... e ali ficam 
+na escuridão, condicionam a sua vida. Reclamando, você nutre a cada dia 
+estes vampiros que fazem de você um escravo. Você tem medo de falar em 
+público e se sente desconfortável? Já se perguntou por que é assim? O que, 
+dentro de você, te obriga a se comportar de um certo modo? Algo que você não
+consegue controlar. O seu contínuo julgamento das pessoas te leva a ter medo 
+do julgamento dos outros. O tímido parece uma vítima, quando na verdade é o 
+contrário, ou seja, alguém que julga o mundo e como conseqüência, tem medo 
+de ser julgado pelo mundo.” 
+Acertou em cheio. Eu sempre fui muito tímido e tinha muito medo de fazer até 
+uma pergunta em público quando assistia a uma conferência. Devo ao 
+encontro com aquela mulher o fato de que hoje eu ganhe a vida escrevendo 
+livros e fazendo palestras. Ou melhor dizendo, devo isso àquela parte de mim 
+que foi materializada nela. Quando consegui parar de julgar as pessoas, 
+aconteceu em mim uma verdadeira revolução interior. Posso tranquilamente 
+afirmar que somente após aquele dia eu comecei a viver realmente. Foi o meu 
+renascimento, porque até agora vivia escravo do medo do que os outros 
+podiam pensar de mim. “A sua incapacidade de assumir a responsabilidade de 
+tudo o que acontece na sua vida, o seus julgamentos e reclamações contínuas 
+de alguém ou algo sobre o trabalho, a família, o querer delegar ao externo a 
+causa dos seus falimentos... tudo isso cria atritos, sofrimentos, acidentes, 
+doenças. Ao mesmo tempo que você quer se identificar com o Todo e procura a
+sua Realeza perdida, não quer acreditar que a existência seja construída por 
+você. Te dá medo a idéia de ser o Rei, o Regente do seu mundo.” 
+Realmente Victoria Ignis tinha toda a razão. Tantos admiram a filosofia do ‘criar 
+a própria realidade’, lêem livros do tema, participam de seminários, tornam-se 
+até professores, mas pouquíssimos vivem realmente deste modo no dia-a-dia. 
+Já vi instrutores, que ensinavam seus grupos como ‘criar a própria realidade’, 
+ainda reclamarem do governo, dos bancários ou da escassa oportunidade que 
+nos oferece a sociedade! “A reclamação é um indício de sua incapacidade de 
+se perceber como único criador dos eventos da sua vida. Em um caminho de 
+crescimento pessoal é indispensável abandonar cada tipo de reclamação, 
+senão nenhum outro passo poderá ser dado.” 
+Victoria Ignis foi sempre muito categórica. Considerava qualquer tipo de 
+reclamação – desde aquelas relacionadas às condições climáticas até aquela 
+voltada à ineficiência do Estado – como uma renúncia à própria Realeza. 
+“Draco Daatson dizia: “um Rei nunca reclama”. Se reclama, isso significa 
+admitir a existência de um poder superior ao seu, um poder que é capaz de te 
+impor alguma coisa que você não quis, e da qual você reclama agora. Um 
+verdadeiro Rei não pode admitir 
+um poder maior que o seu, então sabe que cada evento foi desejado por ele 
+mesmo, pelo seu ser mais profundo e inconsciente. Assim, a reclamação perde
+todo e qualquer sentido. “ 
+4. A SUA ANSIEDADE LENTIFICA O TREM 
+Uma vez estávamos viajando de trem juntos. Tínhamos que ir a Torino e 
+Cesena, e havia uma troca de trem em Piacenza. Sabíamos que entre a 
+chegada do nosso trem e a partida do trem seguinte teríamos somente 10 
+minutos, mas na metade do caminho estávamos já com 8 minutos de atraso. 
+Temendo perder o trem, entrei em um estado de ansiedade e não consegui 
+conter meu desespero: Caramba! Os trens dessa maldita ferrovia Italiana não 
+estão nunca no horário. Se perdermos a troca vamos ter que esperar o próximo
+trem e chegar uma hora atrasados. Até na Índia os trens são mais eficientes! 
+Antes de terminar a frase já tinha me arrependido de ter dito. As palavras 
+tinham saído mecanicamente. A minha parte animal, a parte escrava e 
+submissa do mundo que eu carregava internamente tinha me pego de 
+surpresa, e eu sabia que a minha companheira de viagem – Victoria Ignis – não
+me perdoaria. Ela estava sentada na cadeira em frente à minha, e curvou-se 
+para encostar-se ao meu rosto, lentamente, abrindo um ‘meio sorriso’, como 
+um tigre já seguro de haver a presa entre suas garras. Seus olhos estavam 
+apontando dentro dos meus com tanta intensidade que era impossível olhar em
+outra direção para fugir do seu olhar. O ambiente ao redor tinha desaparecido. 
+Disse ela, então, com uma calma invejável, o que fazia aquele momento ainda 
+mais insuportável: “Você é um escravo do mundo. Permite que o mundo decida
+se pode ou não chegar a uma reunião. Você está colocando esta 
+responsabilidade nas mãos da ferrovia porque não a quer nas suas mãos... é 
+muito para você, o seu ser não consegue segurá-la. Você é só um número 
+entre tantos que vão encher as fileiras dos 
+derrotados, lamentadores, maltratados pela vida... as vítimas profissionais.” 
+Senti-me humilhado, profundamente humilhado, mas não pelo que estava me 
+dizendo Victoria Ignis, mas pelo vacilo que eu tinha apenas deixado escapar. 
+Nessa época, eu realmente estava começando a ser cada vez mais consciente 
+de que frases como aquela sufocam a dignidade do homem e o reduzem a 
+uma marionete nas mãos de um ‘Deus exterior’, o mundo das aparências, 
+Maya. Assim como na história do Pinóquio, às vezes eu me comportava como 
+ser humano, e outras vezes, como um boneco, um fantoche. “A maior 
+superstição consiste em pensar que exista um mundo lá fora, uma entidade 
+desconhecida que pode decidir se hoje você será derrubado ou ganhará um 
+prêmio. Este trem está dentro de você, na sua consciência, é um produto do 
+seu cérebro. Não existe nada fora da sua consciência. Então, este trem está 
+em suas mãos. Mas o seu ser é muito pequeno para contê-lo. Você olha o 
+mundo e ele parece ser gigantesco, enquanto que você se considera um anão 
+psicológico.” 
+Suas palavras representavam uma terrível e dolorosa verdade... tão verdadeira
+que se tornava realmente insuportável. E eu não sabia mais quais linhas de 
+ação colocar em prática para proteger a mim mesmo, a tudo que eu tinha sido 
+até então, daquela implacável verdade. - Existem centenas de pessoas viajando neste trem – tentei argumentar 
+enquanto me afastava alguns centímetros daqueles olhos que se voltavam 
+para o encosto do meu assento – como é possível que eu esteja influenciando 
+o horário do trem e também a vida dos outros passageiros? Eles também estão
+criando suas realidades, certo? “Os outros estão dentro de você, O mundo é 
+feito de imagens na sua consciência, e não de eventos ou pessoas. As pessoas
+que você percebe são literalmente criadas pelo seu cérebro, pelo seu 
+sistema nervoso. As formas, cores, sons... tudo é constituído de simples sinais 
+elétricos que são depois elaborados pelo seu cérebro. Lá fora não existem 
+realmente casas, pessoas, trens... É tudo fruto da sua interpretação interior. 
+Você vê e sente somente aquilo que é capaz de projetar a partir do seu 
+aparelho psicofísico. Aquilo que você vê é aquilo que você é interiormente. O 
+mundo te permite se conhecer. O que você esta sentindo neste momento? 
+Ansiedade e preocupação pelo atraso do trem? Bem, a ansiedade que você 
+carrega dentro de você lentifica o trem, e faz com que ele chegue atrasado, 
+porque a realidade externa é obrigada a refletir suas emoções. A realidade 
+confirma as suas emoções e o seu modo de pensar mais enraizado. O medo 
+de chegar atrasado, o julgamento da ineficiência das ferrovias... são estes os 
+fatores que criam o atraso do trem, e não o contrário.  Estar em um trem que 
+chega no horário ou em um trem que chega atrasado depende exclusivamente 
+de você. Mas este é um conceito incompreensível para a sua mente racional. 
+Você pode somente sentir ou não sentir que é assim, mas não pode chegar a 
+essa conclusão com a racionalidade. Se você quer se reapropriar de sua vida 
+deve sent ir dentro de você que é assim. A vitima é quem cria o culpado, o 
+infrator.” 
+Resumiu. Virando de ponta cabeça com uma só frase o modelo de pensamento
+de toda a atual humanidade. Mais tarde me explicou que aquela frase tinha 
+sido falada pela primeira vez pelo Monaco Guerreiro Draco Daatson, e trazida 
+ao Livro de Draco Daatson. Victoria Ignis usava muito as frases pronunciadas 
+por aquele ‘pioneiro da abertura interior’. 
+Naquele dia do trem aprendi muitas coisas. Naquela época, Victoria Ignis me 
+seguia há algum tempo como being educator (=educador do ser) – ou talvez 
+deveria dizer spiritual educator, embora não exista nada de espiritual em tudo 
+isso – cuidava pessoalmente de me preparar para a vida. Me ensinou que este 
+é o modo mais adequado para despertar a consciência do Ocidente de hoje: 
+um being educator – figura que lembra o tutor – lhe segue em cada coisa que 
+você faz por alguns dias, te avisando cada vez que você atribui ao externo as 
+causas do que acontece na sua vida, cada vez que se afasta do ‘caminho 
+justo’, cada vez que você se esquece de se voltar para a integridade do ser. 
+Depois te deixa sozinho e aparece após alguns meses para verificar em que 
+ponto você está e como pode prosseguir com o trabalho. Fica com você alguns
+dias e depois te deixa sozinho novamente. Este esquema se repete algumas 
+vezes, até você conseguir viver vendo e sentindo o mundo como uma parte de 
+você. É um jeito muito prático de trabalhar com você mesmo, inserido no dia-a
+dia. “O „guru‟, chamado de mestre, desempenha unicamente a função de 
+substituir temporariamente o seu mestre interior, a testemunha que te permite 
+observar de maneira honesta e imparcial todas as vezes que você se engana 
+dizendo a si mesmo que „os outros‟ estão te fazendo alguma coisa. A 
+testemunha te avisa quando você esta tentando escapar da responsabilidade 
+por aquilo que te acontece. Esta tarefa é realizada por alguém que esta ao seu 
+lado, até você conseguir realizá-la sozinho. Isso também é o que diz a tradição 
+das escolas ocidentais, que não falam de horas e horas de meditação e nem 
+de recitação de mantras. Estas se diferenciam das escolas Orientais, onde o 
+„guru‟ é alguém vestido de branco e provavelmente com barba longa, que fala 
+aos discípulos com uma voz persuasiva e sentado na posição de lótus. Para 
+um ocidental, seguir uma tradição que não é a sua, feita de meditações e 
+mantras, significaria fugir do real „trabalho interior‟. O crescimento interior do 
+ocidental não 
+inclui mais a vida monástica, que é ainda uma hereditariedade do método 
+oriental, equivalente ao retiro no „Ashram‟. Ao contrário, passa por um bom 
+relacionamento com o dinheiro e com o trabalho, e implica na capacidade de 
+obter resultados tangíveis e sucesso na vida.” 
+Ter tido uma mulher como being educator influenciou radicalmente os anos 
+seguintes da minha vida e o meu futuro, através dos ensinamentos. Aquela 
+energia feminina, mesmo às vezes sendo manifestada com extrema 
+severidade, foi sendo acomodada de maneira estável na minha essência e 
+impregna ainda hoje todo o meu ser. Victoria Ignis mostrava sempre o sorriso, 
+e quando ensinava, transmitia muita alegria, não era ‘pesada’ no seu modo, e 
+não perdia nunca o senso de humor. Emanava eficiência, mas também 
+serenidade interior. A sua centralização era excepcional: não realizava um só 
+gesto mecânico, involuntário supérfluo. Por exemplo, não coçava partes do 
+corpo mecanicamente e não usava palavras de ligação e gírias durante o 
+discurso. Suas palavras, sua postura e sua atitude eram todas conscientes. Eu 
+sentia a força da presença total que emanava de seu próprio corpo. Seus 
+movimentos eram vivos, repletos desta sua presença. Não desperdiçava 
+energia ao redor de si reclamando ou se incomodando, não comia nada que 
+não fosse indispensável para o seu organismo. Havia total controle de seu 
+aparelho psicofísico, não se submetia nunca à mecanicidade, nem física, nem 
+emotiva e nem à mental. Quando queria que um conceito entrasse na minha 
+cabeça, sabia como fazê-lo com extrema convicção. Sua força às vezes me 
+deixava arrepiado, e seu ‘amor compassional’ derretia meu coração. Em vários 
+momentos que estava com ela, tive medo de morrer. Imagine ter que ir às 
+zonas mais perigosas da cidade ao lado de uma pessoa que sente que é 
+imortal e, portanto, não tem mais medo de morrer... foi uma experiência 
+interessante! Era uma guerreira cheia de amor e paz. 
+Naquele dia, no trem, ela me ensinou como trabalhar interiormente com o 
+objetivo de aprender a sentir que o mundo esta dentro e não fora de mim. 
+“Viva plenamente a emoção que sente neste momento. Sinta a ansiedade, o 
+medo, a impaciência... sem ficar se justificando: não caia na tentação de culpar
+algo externo. Não reclame nunca, não acuse um „fantasmagórico mundo 
+externo‟ pelas suas desgraças. Esteja presente nas suas emoções o máximo 
+que puder, sem recusá-la, sem escondê-la e sem reclamar. Acolha o seu 
+sofrimento, tente compreender seus incômodos, „faça as pazes‟ com a sua 
+raiva, e tenha sempre em mente, em todos esses momentos, que é 
+exatamente aquela emoção que esta projetando a realidade que você percebe 
+como externa. Lembre-se sempre: a sua ansiedade lentifica o trem!” 
+Neste momento senti vontade de retrucar: - não estou tão convencido de esta 
+minha emoção, em particular, crie a realidade, porque se for olhar bem, 
+primeiro aconteceu o evento, e somente mais tarde eu comecei a ficar mal.  
+“Tem razão. Não é esta emoção em particular que cria a realidade, mas o seu 
+hábito de sentir coisas do gênero. Com o tempo, as suas irritações e emoções 
+relacionadas cristalizam-se dentro de você, são transferidas ao inconsciente e 
+agora dirigem a sua vida. É a atitude psicológica a se incomodar com eventos 
+externos. As suas emoções inconscientes causam o evento, e o evento a sua 
+volta te provoca uma sucessiva emoção consciente. Nesse momento você 
+acredita que tenha sido o evento a provocá-la, mas cai neste engano só porque
+não conhece o que está cristalizado no seu inconsciente. Na verdade você não 
+conhece nada sobre você!” 
+5. SINTA A SUA EMOÇÃO 
+Outro trem foi também o palco da minha iniciação. Viajava de trem, uma 
+manhã, de Turim a Milão, e desta vez Victoria Ignis não estava comigo, pelo 
+menos não fisicamente. Sob um plano mais elevado aquela mulher já estava 
+de qualquer modo dentro de mim de maneira constante. 
+Eu estava lendo um livro quando o celular daquela senhora sentada em frente 
+a mim tocou. Ela atendeu e começou a falar em voz alta de suas tarefas, 
+dificuldades familiares, e problemas de saúde, sem nem se importar com quem
+estava ao seu redor. Era insuportável: sua voz se tornava cada vez mais 
+irritante e eu não conseguia me concentrar na minha leitura. Quando eu já 
+estava a ponto de explodir e convidá-la a inserir aquele celular em um dos seus
+orifícios mais íntimos, o observador, dentro de mim se manifestou 
+espontaneamente. Consegui assim, me lembrar de observar o que estava 
+acontecendo no meu aparelho psicofísico, desta vez sem a ajuda de Victoria 
+Ignis, a qual em situação parecida interviria para me fazer notar para qual 
+estrada estavam indo as minhas emoções e a minha imaginação negativa. 
+De repente eu estava presente a mim mesmo. Podia evitar a usual reação 
+mecânica ao evento externo, mas, sobretudo, me tornava consciente do fato e 
+que era a minha irritação, aquela que carregava comigo desde sempre, que 
+estava criando aquele episódio, e não vice-versa. “O mundo é subjetivo, 
+pessoal, construído sob medida para você e por você. A agressividade é algo 
+que faz parte de você, que carrega sempre com você, quando come, quando 
+dirige um carro, quando faz meditação, quando faz amor, quando dorme... está 
+sempre com você, como o fato de que você tem 1 metro e 78 centímetros de 
+altura e cabelo preto. Por estar sempre com você, surge, porém, somente em 
+algumas ocasiões, projetando ao externo uma cena. A cena que você vive é 
+uma projeção da sua agressividade ou do seu medo. As emoções presentes no
+seu 
+inconsciente criam a cena e depois você reage à ela, experimentando 
+conscientemente a emoção.” 
+Estas eram as palavras que Victoria Ignis costumava me dizer em situações 
+parecidas, com firmeza e doçura ao mesmo tempo. E justamente essas 
+palavras me vieram em mente naquela situação. Então comecei a me 
+desinteressar pela cena exterior e me foquei no meu incômodo interior, no meu 
+julgamento para com a má educação de certas pessoas, na falta de respeito e 
+mil desculpas que costumava adotar para justificar a minha aversão a alguém 
+ou alguma coisa. 
+Quando queremos justificar um incômodo nosso, apelamos sempre a algum 
+princípio universal (o respeito, o amor, a amizade) ou então ao fato de que as 
+outras pessoas presentes também sentem o mesmo incômodo, e que então o 
+problema deve ser objetivo: “ Os outros viajantes também estavam 
+incomodados, não  eã zi vam mais ouvir aquela mulher espalhando aos quatro 
+ventos sobre sua vida pessoal, então não era só um problema meu, era alguma
+coisa objetiva!”. Este é um ótimo modo de continuar se enganando e escapar 
+da própria responsabilidade, permanecendo escravo do mundo. Mas 
+observando mais atentamente, se pode descobrir que nem todos reagem da 
+mesma forma em relação a um mesmo evento. Em frente a um recém-nascido 
+que chora eu posso ficar incomodado, mas alguém sente ternura, outro 
+preocupação; como posso então, afirmar que o meu incômodo seja causado 
+pelo choro da criança? Se a causa fosse realmente externa, em frente aquele 
+fenômeno todos reagiriam da mesma idêntica maneira. Mas se somente uma 
+pessoa não fica incomodada, esta é a prova de que a causa não é externa, 
+mas está no modo como é estruturado cada um de nós. Pode ser que mil 
+pessoas reajam do mesmo modo, mas se somente uma não o faz, significa que
+a causa não está no exterior, mas na interpretação daquele evento, e este é um
+fenômeno claramente subjetivo. Nós nunca interagimos com um mundo 
+objetivo, mas com a nossa interpretação subjetiva do mundo, e que está 
+relacionada com o plano intelectual, emocional e mesmo físico; na verdade até 
+as formas e cores são percebidas, criadas, de maneira diferente dependendo 
+das características do sistema nervoso de cada um. 
+Sinta a sua emoção, seu incômodo, sua dor... e não crie justificativas mentais. 
+Me repetia incessantemente Victoria Ignis. - Mas deve existir alguma outra coisa a ser feita! Às vezes a raiva é muito forte!– protestava, quando chegava no meu limite. “Você deve desejar que o seu 
+sofrimento se torne seu , ao invés de continuar submisso a ele! Mantenha den 
+tro de você aquela energia consciente, pois se o faz conscientemente deixa de 
+ser repressão. O segredo para transformar mais rapidamente o seu ser 
+consiste em estar presente quando sofre e fazer de tudo para não escapar do 
+sofrimento. Não tente resistir ou culpar um „mundo externo fantasma‟ pela sua 
+condição de dor. Cum prehenda dentro de você a dor, ame-a, acolha-a, abra 
+seu coração à ela e ouça o que ela tem a te dizer. Não obterá nunca algum 
+resultado recusando-a.  Aqueles de sua espécie tendem a fugir do sofrimento, 
+não gostam do „sacrifício‟, do heroísmo, da coragem, da dedicação a um ideal, 
+não possuem um sonho ao qual consagrar-se, não se propõem a morrer por 
+uma causa. Desejam simplesmente as férias, a pensão, e viver em longo prazo
+sem ter muitos problemas. E essa é a condição mais triste para um ser 
+humano. Não faça nada. Sinta a sua emoção e imagine que a pessoa que você
+encontra a sua frente é realmente uma projeção sua. Sinta
+com todo o seu ser que você esta querendo aquela situação. Torne deseja da 
+uma situação em que você foi até hoje submiss o . Aquela pessoa te diz e faz 
+somente aquilo que você quer, somente 
+aquilo que você precisa para se libertar, para redescobrir o seu ser Real. Os 
+outros estão aqui para te ajudar. Todo o Universo foi reunido para te ajudar a se
+libertar da ilusão. Mas até que você enxergue e sinta isso por você mesmo, 
+deve ter Fé no que eu te digo.” 
+E aquele dia no trem, após anos de tentativas, finalmente enxerguei e senti na 
+minha pele. A minha dignidade de ‘portador da chama’ foi assumida; me 
+concentrei, foquei toda a minha atenção na raiva que estava sentindo e repeti 
+para mim mesmo, mentalmente:  “estou dentro de uma maldita armadilha 
+emocional; a minha irritação me impede de ver a realidade dos fatos. Aquela 
+pessoa lá fora existe somente como projeção da minha irritação. Eu a estou 
+criando e controlando. Eu decido o volume de sua voz e as palavras que ela 
+pronuncia. Eu estou desejando tudo isso”. Sentia as minhas vibrações 
+aumentarem rapidamente. Eu estava começando a sair da gaiola psíquica em 
+que eu me havia colocado. Às vezes voltava a sensação de que a senhora com
+o celular podia existir independentemente de mim, e então a irritação 
+recuperava energia, mas eu sabia que naquelas circunstâncias a força de 
+vontade era indispensável ao objetivo de assumir a armadilha emocional e 
+jogar fora cada pensamento de separação e dualidade. Ela não existia lá fora. 
+Tentava me concentrar em mim mesmo. Eu tinha que me concentrar na minha 
+emoção, mais do que nas pessoas ou os eventos externos, porque o meu 
+problema estava dentro de mim. Sabia bem, graças aos ensinamentos de 
+Victoria Ignis, que o meu mal estar era causado pelo meu ‘demônio’ e não pela 
+situação externa. 
+Não tinha nada a ver com uma tentativa de evitar uma realidade insuportável 
+utilizando uma técnica psicológica, mas ao contrário, era o esforço mágico de 
+alguém que queria alcançar a realidade além da ilusão, o conhecimento direto 
+do mundo que está alem de maya, aquele mundo de conto de fadas que às 
+vezes Victoria Ignis chamava de ‘O Reino da verdade’ ou ‘ O Reino dos céus’. 
+E num certo momento, consegui de realmente! Enquanto eu me observava de 
+maneira concentrada, algo me aconteceu. Entrei em um estado de consciência 
+diferente, o meu coração se expandiu e comecei a chorar. 
+O ciúmes, a irritação, a raiva... são armadilhas emocionais. Não fazem parte 
+de você, daquilo que você realmente é. São demônios que vivem dentro de 
+você e usam sua energia emocional para nutrir-se. Um „portador da chama‟ 
+não se identifica com seus demônios, mas os utiliza para despertar, para abrir 
+uma passagem na prisão psíquica. Quando sentir uma emoção negativa, 
+transforme-a em uma porta para entrar na realidade além da ilusão. Fique 
+desperto, observe o seu sofrimento de fora, sem se envolver, como se 
+estivesse acontecendo com outra pessoa, como se você fosse um cientista que
+deve estudar as reações de sua cobaia. Depois aceite este sofrimento, acolha
+o dentro de você e ame-o. Se não amar o seu demônio, ele nunca poderá se 
+transformar em anjo; o chumbo não poderá transmutar-se em ouro; o veneno 
+não será remédio. O demônio é um filho seu. Você o gerou, através dos 
+tempos e o cristalizou dentro de você. Ele vive já permanentemente na sua 
+casa. Imagine por um minuto que você é um pai que coloca pra fora de casa 
+um filho desnaturado, porque é muito agressivo, medroso ou incapaz. Será que
+este filho não baterá a porta para ser acolhido ou reconhecido? E nem será 
+ouvido se bater com mais força, até que um dia, derrubará a porta com toda a 
+fúria de que é capaz? Não deixe espaço para os seus demônios, e ao mesmo 
+tempo, encha-os de compaixão, porque são crianças medrosas disfarçadas 
+atrás de máscaras de monstros. Um belo dia você conseguirá realizar a 
+transmutação: a raiva se tornará „ímpeto guerreiro‟, o ciúmes se tornará amor 
+incondicional... cada emoção negativa se transformará em uma emoção 
+superior repleta de amor. Fora da prisão psíquica, no Reino dos Céus, existe 
+um estado de encantamento ilimitado, de bem estar, de confiança na perfeição 
+de tudo o que acontece... É um mundo que 
+espera só você, com paciência, há milhões de anos, para te envolver em seu 
+morno e afetuoso abraço. 
+Lembro-me ainda hoje do amor sem fronteiras com que Victoria Ignis 
+pronunciou aquelas palavras. Seu vulto emanava uma ternura capaz de 
+abraçar a humanidade inteira. Nem parecia ela... tinha sido literalmente 
+transfigurada. Era como se alguma coisa falasse comigo através de seu corpo 
+físico.  
+Aquele mesmo Amor tinha subido comigo no trem naquela manhã. Eu não 
+conseguiria descrever o que senti naquela situação utilizando somente a 
+linguagem humana. Para dar uma idéia do mundo que se abriu de repente, 
+diante dos meus olhos, teria que pedir ajuda a algum humorista de Vênus sob o
+efeito do ópio. Deveria pegar emprestado os ultra sons emitidos pelos 
+golfinhos, o canto de amor de um raro passarinho, a vibração do vento quando 
+atravessa teias de aranha, o olhar esquivo de uma baleia logo antes de 
+mergulhar novamente no mar ou o ruído ensurdecedor de uma semente que 
+germina. 
+O meu conhecimento das coisas estava ignorando a mente racional, como se 
+esta fosse um velho asno impossibilitado de fazer seu dever, e a espera de ser 
+abatido.  Graças a minha força de vontade, consegui mergulhar no coração e 
+me abrir para uma nova dimensão do conhecimento. Como posso então 
+descrever o sublime? O sublime envolve a sua mente, a domina, a aquieta e 
+depois a derrete com seu calor. Os efeitos do sublime são permanentes, 
+enquanto que os da razão não o são. Eu vi, da maneira mais óbvia do mundo, 
+que aquela mulher sentada à minha frente estava dentro de mim... e eu a 
+amava, ou melhor, eu era o próprio amor que me unia a ela. Senti em mim uma
+combustão que nunca pensei que pudesse ocorrer em um corpo humano sem 
+causar uma falha instantânea do sistema nervoso. Estou certo de que por 
+causa da explosão de amor vinda naquela manhã, naquele trem, alguns anjos 
+no céu tornaram-se mais esplêndidos e passaram à hierarquia superior; em 
+Sírio, centenas de almas incorporaram contemporaneamente milhares de 
+novas intuições artísticas; Vênus modificou ligeiramente sua rota; e sobre a 
+Terra – posso jurar pela salvação da minha própria alma – milhares de crianças
+africanas não sentiram fome naquele dia! 
+Finalmente livre das pedrinhas do incômodo e do julgamento, me sentia leve e 
+fresco. O olhar através do qual eu observava a realidade foi iluminado. Quando
+afirmo que vi uma realidade diferente – e que isto seja claro desde já – não 
+quero dizer que me limitei a mudar a minha opinião sobre aquela pessoa a 
+nível intelectual, e sim que tais visões apresentaram-se à minha frente como 
+uma verdade interior inquestionável. Não pensava, mas enxergava. E se eu 
+puder ser ainda mais preciso, não diria nem que eu enxergava, mas que eu 
+sentia e tocava através de novos sentidos interiores: os ‘sentidos da alma’. 
+Um fogo incabível saia do centro do meu peito. Percebia em mim uma força e 
+uma potência desmedida, enquanto a minha consciência flutuava na mais 
+morna e tranqüila felicidade. Eu estava inflamado de amor. Sinal claro de que 
+estava observando a realidade além da ilusão. Eu estava vivo, e 
+temporariamente livre de alucinações psíquicas. Um vislumbre de realidade 
+estava ali, em frente a mim em sua mais maravilhosa e impensável forma. Dei 
+uma olhada à minha volta: as pessoas e as coisas emanavam, de dentro de si, 
+uma luz intensa e quente ao mesmo tempo, todo o ambiente era repleto de 
+cores nunca antes vistas que eu nem poderia descrever. Só o tentar seria um 
+sacrilégio com a natureza. Concentrei-me instintivamente na minha escuta, 
+como se agora fosse óbvio fazê-lo, e notei que cada pessoa emitia uma nota: 
+falavam uma língua feita de música que saía de seus corpos, invadindo o 
+espaço. Cada ser humano tocava uma nota diferente, independentemente se 
+estavam falando ou não, se se moviam ou estavam parados. 
+A dimensão supra-racional tinha vindo me fazer uma visita, me impregnava e 
+se expandia de dentro de mim. Alguma coisa dentro de mim tinha sido rompida 
+e a minha comoção tornava-se insustentável: comecei a chorar soluçando 
+como uma criança. Percebi, finalmente a ‘pequenez’ das emoções que eu havia
+experimentado até aquele momento a minha vida. Envergonhei-me de ter 
+chamado de amor certos sentimentos mesquinhos os quais pude então 
+enxergar. As lágrimas que escorriam pelo meu rosto pingavam nas páginas do 
+livro aberto sobre meus joelhos e cada gota emitia uma vibração que 
+ressonava em todo o meu corpo, agitando-o sutilmente; uma massagem quase 
+imperceptível fluía pelo meu ser, o estimulava, o reforçava... e desse modo eu 
+o estava curando dos velhos males de milênios. 
+6. UM CAMINHO DEVONIANO 
+No final dos anos 90 eu trabalhei por 6 meses como operário na fábrica da Fiat,
+no estabelecimento Mirafiori de Torino. Naquela época Victoria Ignis tinha 
+começado a aparecer cada vez com mais freqüência. Havia 3 meses que 
+tínhamos nos encontrado pela primeira vez, e nos víamos mais ou menos a 
+cada 15 dias. Era como se ela me cercasse, desenhando círculos sempre mais
+estreitos. 
+Numa manhã de setembro estava voltando para casa após o turno da noite, 
+que terminava as 6 horas, e a encontrei no ponto de ônibus. Estava vestida 
+com um simples jeans e uma blusinha verde, leve e solta. Seja qual fosse a 
+roupa que vestisse, estava sempre elegante, fascinante... nobre. Ela era a 
+demonstração viva de que nobreza não depende da família ou do aspecto 
+físico, mas sim do desenvolvimento interior de uma pessoa: a nobreza pode ser
+somente a ‘nobreza da alma’. 
+A calça justa enfatizava suas formas abundantes, e mesmo sendo o tipo de 
+mulher que me atraia fisicamente, durante o tempo que mantive contato com 
+ela nunca me passou pela cabeça um pensamento sexual em relação à ela. 
+Era evidente que ela, de alguma forma me impedia de tê-lo. Ela tinha controle 
+completo de seu centro sexual e de seu corpo emocional, e isso tornava 
+impossível em mim a presença de qualquer energia sexual ou passional. Às 
+vezes se estabeleciam entre nós contatos ‘de coração a coração’ muito 
+intensos, com lágrimas e tudo, outras vezes ela me aterrorizava ou batia de 
+frente com o meu modo de pensar até que eu interrompia a conversa e ia 
+embora. Mas mesmo neste caso, eu sabia que ela havia provocado 
+deliberadamente aquela reação em mim. 
+Victoria Ignis era um ‘vampiro ao contrário’, capaz de grudar em você e lhe 
+transmitir energia, de dar vida ao invés de tirá-la. Ela me ‘mordeu’  naquele dia 
+no parque e me enfeitiçou com seu modo de entender a existência totalmente 
+oposto ao usual. Várias vezes eu me pegava pensando se ela era uma louca, 
+desvairada ou uma ambiciosa sem escrúpulos, mas ao mesmo 
+tempo eu não via a hora de reencontrá-la e contava os dias que me separavam
+dela. 
+Exatamente como acontece após uma mordida de vampiro, percebi que estava
+irremediavelmente contaminado pela sua visão de mundo. Me assustava mas 
+ao mesmo tempo me seduzia. Alguma coisa em mim tinha começado a mudar. 
+Uma vez mordido, não se pode mais voltar atrás, não existe antídoto: estava 
+ocorrendo em mim uma transmutação alquímica que cedo ou tarde me faria 
+pertencer à sua mesma espécie. - Como pode dizer coisas tão desconcertantes com aquela calma, com aquela 
+naturalidade inatural?  
+Perguntei a ela naquela manhã no ponto de ônibus. “O meu modo de falar com 
+você é conseqüência do que eu vejo , não do que eu penso. Esse seu estupor 
+é que deveria ser estudado! Pensar que exista um mundo de nós do qual não 
+temos controle... isso sim é que é uma loucura! E quem pensa assim deveria 
+ser internado em uma clínica e estudado a fundo! Você não percebe a loucura 
+desta visão somente porque é a mais aceita socialmente. É a massa que pensa
+assim, então parece normal. Isso faz com que venham tratados como loucos os
+poucos sãos que existem no mundo. Nesta época de caos é a massa que dita 
+as leis. No governo estão os representantes da massa, não „os melhores‟, ou 
+seja, indivíduos que tenham alcançado a integridade do ser. Quando a massa, 
+ignorante das leis do Universo, se apoderou da educação, da ciência, da 
+medicina e da religião, começou a decadência. Nas “sociedades tradicionais” 
+estas instituições eram administradas por „iniciados‟, ou seja, pessoas que já 
+haviam adquirido um certo desenvolvimento de sua essência, pessoas 
+conscientes de serem uma unidade com o 
+todo, líderes com o coração aberto, capazes de transmitir valores .  Através das
+instituições, a massa era governada e ao mesmo tempo  educada, ou seja, 
+ajudada a evoluir, a superar a gana de aspirar por um crescimento da 
+consciência. Enquanto que hoje, é a massa – os não livres, os escravos – que 
+decide quem governa e como conseqüência, como deve ser o programa 
+educacional. Mas um escravo só pode eleger ao governo “ditadores”. Os 
+resultados estão sob os olhos de todos: filas de autônomos formam uma 
+escravidão empregatícia que luta pela sobrevivência oito ou mais horas ao dia  
+em um escritório ou uma fábrica. Se o indivíduo ocupa uma posição no quadro 
+gerencial ou se é um operário de linha, se ganha altas cifras ou somente o que 
+dá pra comer, não muda nada, porque a mentalidade é sempre empregatícia: é
+a atitude de depender, de viver somente para satisfazer necessidades básicas 
+ao invés de viver por um valor. Se a escola não educa os valores, a 
+necessidade torna-se o valor.  A massa que se ilude de poder se autogovernar 
+através da chamada „democracia‟ esta se arruinando sozinha! A partir do 
+momento que cada ser deve necessariamente. Por força das circunstâncias, 
+encontrar fora de si o próprio governante, o resultado do infantil desejo de 
+autogoverno do povo é a fatal submissão a quem possuir a habilidade de iludi
+lo que isso seja efetivamente possível. O irracional desejo de democracia terá, 
+então, sempre como efeito a oligarquia, que, não por acaso, é hoje a forma de 
+governo mais difundida no mundo dito democrático. A democracia não é 
+possível, mas se o povo não percebe esta impossibilidade e quer mesmo assim
+se iludir de poder autogovernar-se, então uma oligarquia – uma casta voraz e 
+sem valores – é automaticamente autorizada a estabelecer-se no poder por 
+décadas, sendo chamada de „governo democrático‟. O povo possui aquilo que 
+merece... sempre.” 
+Eis um daqueles momentos em que eu queria matá-la! Eu era um sustentador 
+completo da democracia e sempre acreditei que ela deveria ser defendida com 
+unhas e dentes, enquanto que aquela mulher me dizia que a democracia não 
+só não existe atualmente, como era impossível de existir. - E então qual solução você proporia? Tentei indagar. “Não se trata de propor 
+alguma coisa. A história move-se de através de ciclos, então já se sabe que 
+após este período de caos que já dura há milênios, virá um período de 
+„restauração dos mistérios‟, durante o qual se restabelecerá uma Hierarquia do
+Ser, como guia de uma Sociedade Tradicional.” 
+Victoria Ignis me explicou que o termo ‘tradicional’ não tem nada a ver com o 
+termo ‘conservador’. Uma Sociedade Tradicional não é tida como tal porque 
+adota leis, costumes e preceitos morais do passado – o que seria uma tolice, 
+por retroceder em coisas que já foram superadas – mas porque se refaz no 
+‘princípio tradicional’, o qual afirma que dentro de uma coletividade que queira 
+estar alinhada com a evolução do Cosmo, todos os cidadãos se dedicam à sua 
+própria realização interior, cada um em seu nível e de acordo com suas 
+características pessoais. Em uma sociedade autenticamente tradicional, a 
+elevação do ser do indivíduo – a sua identificação com o Todo – é vivida como 
+o único objetivo da vida consciente de um ser humano. Qualquer outra 
+atividade – política, econômica, científica, educativa, artística – roda em torno 
+de tal princípio e é simplesmente sua manifestação. Com a expressão 
+‘Hierarquia do Ser’, não deve ser entendido nada de místico ou religioso, mas 
+sim um governo composto por seres íntegros, ou seja, totalmente identificados 
+com o Todo.  Sua consciência é tão extensa que percebem o mundo, e assim, 
+a comunidade, como parte de si mesmos. Como consequência agem 
+naturalmente pelo Bem Comum, sentindo que o bem dos outros é também seu 
+próprio bem. Não possuem mais apegos materiais nem interesses pessoais, 
+mas tomam decisões impopulares, enquanto que para e-ducar o povo é 
+necessário obrigá-lo a dar um salto para o alto, coisa que por livre e 
+espontânea vontade não fariam. O povo tende a estacionar nos fundos, e 
+normalmente não aspira a um maior grau de consciência, já que esta implica 
+em maior responsabilidade. No futuro, quem demonstrará possuir um ser mais 
+evoluído – vale dizer, que se encontrará em um nível mais elevado de 
+consciência – será encarregado de fazer as decisões mais importantes, seja na
+política, seja dentro de uma indústria. Não serão mais a ambição e o desejo de 
+obter privilégios a fazer com que um indivíduo chegue a governar um país, mas
+sim suas qualidades interiores: a Inteligência iluminada, a genialidade, o 
+heroísmo, a capacidade de sonhar, o coração aberto, a dedicação ao ideal, o 
+sacrifício de si mesmo até a morte... - Quer dizer que nos será imposto do alto uma forma de governo desse tipo? A 
+idéia de Hierarquia me dá medo! “Se for imposta do alto não é autêntica. Se 
+instalará espontaneamente, como fruto de um processo de e-ducação do povo. 
+A Hierarquia é um conceito natural, inevitável. Na verdade na natureza não 
+existe democracia. Draco Daatson dizia: “Quando dois homens se encontram 
+um dá e o outro recebe”. O que significa dar algo a uma pessoa? Não quer 
+dizer  eã zi-la, mas ao contrário, amá-la como uma parte de si e ajudá-la a 
+“subir um degrau”. Somente quando você ajuda alguém que está abaixo de 
+você a subir no seu degrau poderá subir ao degrau sucessivo. Não é possível 
+subir deixando para trás um degrau vazio, porque cedo ou tarde cairá nele 
+novamente. Onde quer que dois homens se encontrem, mesmo por poucos 
+minutos 
+dentro de um elevador, imediatamente e inevitavelmente se estabelece uma 
+ordem hierárquica. A distância do Todo – a força com a qual um indivíduo sente
+ser um Rei responsável pelo seu reino, o coloca no degrau que lhe cabe nessa 
+escada invisível. Quanto mais íntegra e unitária é a sua consciência, ou seja, 
+próxima aquela do „Uno‟, que carrega tudo dentro de si, mais elevada é sua 
+responsabilidade. Não é a raça,  a idade, o sexo, a fama o cargo assumido, a 
+educação, o título de estudo... mas é exclusivamente o nível do Ser, o nível de 
+responsabilidade pelo que acontece no mundo, que decide, em silêncio, a 
+posição hierárquica de toda e qualquer pessoa. E aqui entra em jogo a escola. 
+Esse conhecimento deveria se tornar patrimônio de muitos para que muitos 
+possam elevar a própria essência. Precisamos de pessoas capazes de 
+transmitir esses ensinamentos revolucionários para permitir a transição do ser 
+humano a um novo estado de Consciência, no grau sucessivo da evolução 
+planetária. Alguns comparam este período histórico com o fim do Cretáceo, 
+quando desapareceram os dinossauros e iniciou a era Cenozóica. Outros o 
+comparam ao Devoniano (na Era Paleozóica), quando alguns anfíbios 
+conseguiram sair da água e dar os primeiros “passos” em terra firme. Ambas as
+comparações são adequadas. A humanidade esta sendo chamada a se 
+transferir do mar à praia, mas essa transição requer um esforço enorme, uma 
+revolução do Ser. Somente alguns conseguirão. Outros terão o mesmo fim dos 
+dinossauros. Quando o Ser de um organismo se torna mais elevado do que ele
+pode exprimir dentro de sua espécie, tal organismo desenvolve novos 
+órgãos que lhe fazem pertencer a uma nova espécie e mudar de habitat.” 
+Eu estava perplexo diante daquelas palavras. O meu mundo estava 
+desmoronando, tijolo por tijolo. “Perceber o mundo dentro de si não é só uma 
+questão de idéia, mas implica em um despertar da consciência, uma 
+transformação física, um desenvolvimento adequado do sistema nervoso, a 
+reativação de algumas glândulas, a Pineal e Pituitária, principalmente. São 
+anos de trabalho intenso durante os quais o indivíduo é totalmente reeducado. 
+Precisa-se de escolas realmente educativas, seja para os adultos ou para as 
+crianças. À medida que o nível de consciência do povo se elevar, sempre mais 
+indivíduos íntegros serão eleitos ao governo, porque o cidadão tem sempre e 
+somente aquilo que merece. Você possui as qualidades para transmitir aos 
+outros esta nova visão de mundo, mas primeiro deve reeducar a si mesmo, 
+liberar-se da prisão psíquica.” 
+Não acredito que eu possa ter o dom de ensinar. Não tenho um título de estudo
+adequado, sempre tive medo de falar em público... “Isso não é você quem deve
+dizer. Te asseguro que você já tem as qualidades que servem, mas ainda é 
+totalmente um escravo, um anão psicológico, e por esse motivo vive na 
+escassez, e não consegue nem colher sua próprias qualidades, seu poder, seu 
+fogo. Você é vítima daquilo que te ensinaram a escola, os pais, a mídia... Você 
+é vítima do Mundo e nesse estado você não serve para qualquer atividade que 
+não seja meramente mecânica e baseada na sobrevivência, como comer, 
+trabalhar como 
+dependente e fazer filhos. Mas pode decidir mudar, sair da psicologia do „ser 
+vítima do mundo‟ e assim teria a possibilidade de se tornar alguém, um 
+verdadeiro indivíduo. Lembrando que tudo o que você é agora deverá morrer: 
+suas idéias sobre o mundo, suas convicções políticas, sua moral, o seu modo 
+de amar... tudo! Tirarei todas as suas falsas raízes; se aceitar de trabalhar 
+comigo será só porque você não faz idéia do que te espera! Você deverá 
+confiar completamente em mim e ter um desejo sobre humano, incontrolável de
+abandonar o seu estado atual. No momento que decidir fazer um percurso de 
+re integração , você morre , e o que sobra de você é colocado em  minhas 
+mãos. Não é uma brincadeira, vou arrancar o seu orgulho, e isso te fará mal. 
+Só pode enfrentar algo do gênero quando percebe que não vale à pena 
+continuar a viver como uma marionete nas mãos do mundo, quando você 
+estiver pronto para a história do Pinóquio. Se tiver ainda qualquer coisa pra 
+segurar, qualquer aspecto que você ainda seja apegado, nem adianta 
+começar.” - Me diga uma coisa: você me escolheu porque sou um pouco especial? 
+Porque você acha que tenho mais possibilidade do que muitos outros? “Não! 
+Muito pelo contrário! Você tem as qualidades de divulgador e professor que 
+poderemos usufruir no futuro, mas não é por nada especial. Te escolhi 
+exatamente porque você me representava um desafio e um teste: se uma 
+pessoa insignificante como você conseguir se libertar, quer dizer que será 
+também possível para milhões de outros!” 
+E soltou uma risada estridente. Desse modo deu o primeiro grande golpe no 
+meu amor próprio. Eu não tinha sido escolhido porque eu era um eleito, mas 
+porque representava seu desafio pessoal. Se Victoria Ignis podia ajudar 
+alguém como eu a alcançar a liberdade – a tornar-me o Rei do meu mundo – 
+esta seria uma grande vitória para a Escola. Quem era eu? Um falido, um 
+depressivo crônico, alguém que tinha usado álcool e drogas por anos, alguém 
+cujo título de estudo era o 3º Ensino Médio completo, e cuja máxima aspiração 
+consistia em ser contratado por tempo indeterminado como operário de linha 
+da Fiat. 
+7. FULMINADOS OU ILUMINADOS 
+“A este ponto te faço uma pergunta: você quer despertar? Quer tentar sair do 
+mar para se aventurar na praia? Quer sentir a mesma emoção sentida pelos 
+primeiros anfíbios, pioneiros na revolução planetária da época? Parem um 
+pouco para pensar: o que estimula um ser vivo a fazer alguma coisa antes dos 
+outros de sua espécie? Consegue imaginar a psicologia daquele primeiro 
+anfíbio que se arrastou pra fora da água? Você já se perguntou o que significa 
+tentar alguma coisa realmente diferente dos outros de sua espécie? Consegue 
+sentir, somente por um instante, o fogo que mova Draco Daatson, indivíduo 
+que, há séculos atrás, se deu conta de estar em uma prisão psíquica e 
+organizou um grupo com o objetivo de fugir dela?” 
+Me subiu um arrepio pela espinha. Abriu-se um horizonte de possibilidades e já
+me sentia capaz de tudo para guiar um exercito de revoltados! Era incrível com 
+Victoria Ignis podia, com poucas frases certeiras, me provocar uma revolução 
+interior, um aumento do estado vibratório. Mas justamente quando eu estava 
+para derramar lagrimas de comoção, a racionalidade voltou a me dominar – Eu 
+realmente acredito que muitas pessoas já tenham iniciado um percurso 
+espiritual. São milhões pelo mundo: meditação, yoga, reiki... e só escolher. Não
+acho que ainda haja espaço para ‘pioneiros’. Talvez há cinqüenta anos atrás, 
+mas não mais atualmente. Me olhou por alguns longos segundos e depois 
+disse com um tom de desprezo exagerado: “Estou falando de uma 
+transformação do Ser, não de recitar mantras de maneira mecânica na frente 
+da foto de um maestro de barba branca! Este não é o pacote espiritual 
+mostrado em revistas de cabeleireiro. Eu te digo que a sua realidade está 
+dentro de você... e você me fala de espiritualidade?” 
+Eu não entendia. Qual era a diferença? Naquela época parecia tudo a mesma 
+coisa. ‘New Age’, esoterismo, reiki, meditação transcendental, Rene Guenon, 
+Gurjieff, Crowley, tantra, teosofia... Compreendendo o meu sincero embaraço, 
+resolveu me explicar melhor sua afirmação: “Uma coisa é um autêntico trabalho
+de despertar, ou seja, de re - integração do Ser conduzido através da auto
+observação cotidiana e a modificação do seu modo de ver o mundo, outra 
+coisa são as técnicas. Despertar quer dizer parar de se achar uma criança 
+medrosa a mercê do mundo e começar a agir como um Rei, o regente da sua 
+realidade. Hoje estão proliferando – e aumentarão cada vez mais nos próximos
+anos – as escolas que ensinam técnicas, mas as técnicas, por si só, não 
+despertam não te conduzem para fora da realidade sujeito/ objeto de maneira 
+consciente. Se quer despertar deve segurar sua vida com sua próprias mãos, 
+tornar-se um „mônaco guerreiro‟, atravessar a dor sem culpar nada nem 
+ninguém. Os seres humanos estão inventando as técnicas mais estranhas... 
+por não despertarem nunca, por não enfrentar suas dores.” 
+Me explicou com paciência que a recitação dos mantras não desperta, mas ao 
+contrário, adormenta. Os exercícios de respiração e a energia sexual podem 
+levar à loucura, pois introduzem no organismo uma quantidade de energia que 
+o sistema nervoso ainda não esta pronto para receber. Me fez ainda uma longa
+lista de exemplos dos danos criados pelo auto-uso dessas técnicas. “Em todos 
+esses anos nunca vi um ocidental despertar utilizando técnicas de meditação! 
+Nunca. Nesses grupos todos falam do despertar, mas ninguém o obtém e 
+ninguém resolve radicalmente seus problemas cotidianos! Utilizar técnicas para
+atingir a chamada liberação é uma ilusão da ilusão, a armadilha da armadilha. 
+Nunca soube de ninguém que adquiriu a integridade do próprio ser dentro de 
+escolas esotéricas, de meditação, escolas de magia, escolas de gnosi. E 
+também existem muitas pessoas que saem contando que, por exemplo, a 
+energia sexual pode levar à iluminação. Simplesmente não é verdade. Pode 
+até ajudar, assim como fazem alguns exercícios de respiração e até certas 
+drogas, mas as técnicas por si só não levam a lugar nenhum. No melhor dos 
+casos você adquire tanta energia que não consegue lidar com ela e que acaba 
+por alimentar as criticas, incômodos e julgamentos para com o mundo... mas 
+não te libera do Mundo.”  
+Me disse que, se insistimos nessas técnicas, podemos ativar os centros sutis 
+(chakras) e ter experiências místicas muito fortes. Neste ponto pode-se ate 
+achar que ‘entrou para o Uno’,  o Todo, e, realmente, de um certo ponto de 
+vista, é de fato verdade. Mas se trata do Todo sem consciência, o pacote 
+indiferenciado onde a consciência do individuo está imersa há milhões de anos,
+e não o Uno ao qual a consciência deve expandir-se sempre mais, o Uno 
+autoconsciente, fruto de um esforço consciente. Essas pessoas estão 
+fulminadas, e não iluminadas, como pensam. Não e mesmo possível conseguir 
+o despertar consciente do Ser, ate alcançar a Unidade autoconsciente, 
+utilizando técnicas puramente mecânicas. Por meio de drogas, energia sexual, 
+exercícios de respiração, recitação de mantras entre outras, podemos somente 
+entrar no Nada, um estado comparado ao sono profundo primário, de onde 
+tudo e iniciado; um estado de embotamento da consciência onde os problemas 
+acabam enquanto não somos nem capazes de percebê-los, e não porque já os 
+cavalgamos e os superamos. Ao invés de ir pra frente, voltamos para trás. 
+Algumas destas técnicas são antigas, de milênios atrás, o que não quer dizer 
+que são boas. Pelo contrário. Elas foram concebidas por uma humanidade 
+muito diferente da atual. As meditações e mantras que eram ensinados na Índia
+ou na China há mais de mil anos atrás não funcionam para um ocidental que 
+vive na era atual, obviamente! E incrível como ninguém perceba a inutilidade, 
+ou ainda a periculosidade que existe no querer utilizar hoje certos métodos tão 
+antigos. No passado, a humanidade não tinha as mesmas potencialidades de 
+hoje, então os estudantes almejavam o anulamento da consciência no Uno 
+primário, e não ao despertar consciente, ou seja, a integridade do Ser que 
+podemos alcançar hoje.  “Tente você mesmo, na sua pele – me cutucou 
+Victoria Ignis – freqüente escolas e grupos, inscreva-se a diversos cursos. 
+Experimente em você, assim aprenderá a discernir, de maneira autônoma e um
+dia poderá explicar aos outros a diferença.” 
+Nos anos sucessivos, enquanto Victoria Ignis me seguia na minha formação, 
+freqüentei algumas escolas e me inscrevi a vários grupos: da meditação 
+transcendental a meditação Zazen, da escola de magia à escola tântrica, do 
+pensamento positivo ao Reiki. Por um certo período passei também por 
+algumas ordens iniciáticas  aceitando assumir os típicos nomes ocultos que 
+iniciam sempre com Frater ou Soror... Mais pra frente foi a vez dos grupos de 
+Osho, onde, a um certo ponto, como ocorre s muitos que freqüentam esses 
+grupos, me pediram para usar um nome sannyasin, alguma coisa tipo Ananda 
+anam, Shivaprem, Shaktiavasa, Devananda Urusvati e assim por diante, todos 
+nomes que significavam ‘ flor de lótus que se abre na testa’ ou ‘sinto o amor do 
+Absoluto impregnar em meu coração’! 
+Mas na realidade, em nenhum desses lugares haviam bem claro o real 
+significado da mudança de nome, algo que poderia ser feito – sem 
+obrigatoriedade – somente após a integração do Ser, e não antes, o que indica 
+a morte da personalidade anagráfica e o nascimento de um verdadeiro 
+indivíduo.  Mas a partir do momento que, nessas escolas ou grupos ninguém 
+atinge realmente tal estado – ou pelo menos eu nunca encontrei alguém que 
+tivesse conseguido – escolhe-se mudar o nome para indicar uma certa 
+iniciação ou até no momento de entrada na escola! 
+A minha experiência foi única, porque pude atravessar todos esses diversos 
+ambientes ditos espirituais com desapego, sem me identificar com uma técnica,
+com um mestre ou tradição oculta. Em alguns lugares fiquei somente algumas 
+semanas, outros, freqüentei por anos. Graças às advertências de Victoria Ignis 
+pude agir como expectador, ou seja, indagando, ao invés de ser somente 
+‘aluno’ procurando espiritualidade. 
+Me lembro que em um desses grupos queriam me fazer uma coisa chamada 
+‘ativação dos chakras’. Victoria Ignis já tinha me aconselhado a ficar longe de 
+qualquer um que quisesse manipular meus chakras, o que me ajudou a evitar 
+possíveis danos. - “Não tente ativar os centros sutis utilizando métodos 
+mecânicos! – Me disse uma vez. – Quer abrir de verdade o chakra do coração?
+Bem, é louvável da parte sua. O modo mais rápido e seguro para fazê-lo 
+consiste em parar de julgar e decidir amar seus inimigos. Tome hoje esta firme 
+decisão e levea adiante a cada instante de sua vida. Se esforce para amar 
+qualquer pessoa que te incomode e em poucos meses conseguira abrir esse 
+chakra.  - Quer abrir o terceiro olho? – continuou em tom cada vez mais irônico – Magnífico, gosto dos jovens que desejam crescer! Neste caso o modo mais 
+rápido e seguro consiste em pensar a cada 
+instante que cada coisa que você vê é criada para você, por você. Em pouco 
+tempo será um homem totalmente novo.” 
+Me explicou que tentar forçar a ativação de um chakra através de qualquer 
+técnica que seja e um comportamento arriscado. Quem por exemplo tenta 
+influenciar um chakra por meio de respirações particulares e mudra (posições 
+das mãos) o faz somente porque não quer enfrentar a dificuldade de amar 
+conscientemente seus inimigos, não quer parar de julgar o mundo ou então 
+porque não consegue desenvolver uma forca de vontade suficiente para ver o 
+mundo dentro de si ao invés de vê-lo fora. Escolha o ‘caminho curto’, mas este 
+caminho leva à loucura, e não ao despertar da consciência, pois move energias
+do subconsciente que ainda não sabemos gerenciar.  
+Uma outra experiência certamente instrutiva foi o encontro com a meditação 
+transcendental: se paga um valor razoável para adquirir um mantra 
+personalizado para repetir por vinte minutos duas vezes ao dia, o que deveria 
+levá-lo ao despertar da consciência! Paguei a minha quota e participei de um 
+pequeno ritual de iniciação no qual me foi dado o meu mantra, somente porque
+queria verificar o que Victoria Ignis havia me explicado. Portanto verifiquei na 
+pratica que um mantra repetido desse modo hipnotiza a mente, equivalendo a 
+um tranqüilizante psicológico: torne-se mais calmo e deste modo os 
+sofrimentos te atacam menos, mas porque aumentou a sua sonolência, e não 
+porque você esta despertando! “Não e por meio de um instrumento mecânico 
+que você pode transformar sua visão de mundo. Ocorrem esforços repetidos e 
+plena consciência. Como na historia do Pinóquio: O boneco que quer se 
+transformar em ser humano deve primeiro conhecer a si mesmo, aceitar seus 
+deveres e enfrentar diversas provas. Mas as pessoas preferem mentir a si 
+mesmas, esmagam o grilo falante com um martelo, se iludem de estar 
+avançando em direção à praia, quando na verdade naufragam na segura 
+tranqüilidade do fundo do oceano. Temem aventurar-se na conquista da terra 
+firme, em um habitat ainda não explorado pelos outros de sua espécie!” 
+8. AUTO-OBSERVAÇÃO E LEMBRANÇA DE SI 
+Me explicou um dia Victoria Ignis. Estávamos passeando na praça em frente à 
+Basílica de Superga, em Turim, esmagados entre o sol e os turistas que, no 
+verão, entopem o local. Era um daqueles dias em que eu gostaria de ficar ao 
+lado dela para sempre, só para continuar ouvindo as ‘batidas de seu coração’, 
+qualquer coisa que não tem a ver com o órgão físico, mas a forca emanada de 
+um coração aberto, capaz de irradiar amor e vontade a quem estiver por perto. 
+“E nisso que consiste o trabalho do despertar: auto-observação, lembrança de 
+si e extermínio de toda e qualquer reclamação. Entre os personagens mais 
+famosos, os únicos em que se pode fazer referencia „e Gurdjieff e seus alunos,
+e Eugene J. Gold. Ler seus livros não é nem de longe uma perda de tempo.” 
+Numa outra ocasião, me falou de Eckhart Tolle, dizendo que seu livro O poder 
+do agora pode ser usado como um ‘ livro de escola’. Nunca me aconselhou 
+outros textos. “- Você vê estas pessoas? – disse, apontando as pessoas na rua– Não se observam e não estão nunca presentes. Deste estado e ausência 
+derivam todos os seus problemas e os problemas do mundo. A atenção , o 
+recordo de si... são o segredo de que falam os alquimistas. Qualquer outra 
+interpretação será uma tentativa frustrada ou errônea. Você entende, então, o 
+quão absurdo é aplicar técnicas até se congelar no sono da consciência? Se 
+antes 
+você não tinha acordado, tais técnicas não fazem outra coisa senão deixar seu 
+sono ainda mais profundo. O objetivo primário é despertar, e você o obtêm 
+procurando estar presente , em um estado de atenção em qualquer que seja a 
+situação. Com a finalidade de obter prosperidade na sua vida não é importante 
+o que você faz ou quantas coisas faz, mas como as faz. Se pergunte sempre 
+se esta presente enquanto age, fala, escuta... Você deve mudar a qualidade 
+das suas ações, e o resto será só o resultado disso. Lembre-se de si mesmo. 
+No inicio você pode ate repetir mentalmente „eu estou presente‟ se acha que 
+pode te ajudar, mas a um certo ponto o pensamento devera transformar-se em 
+sensação interna . Com o tempo isso será constante, e você terá se tornado 
+testemunha da sua própria vida, o Rei do seu Reino. Quando você „despertar‟ 
+e cruzar todos os dias com milhares de pessoas que ainda congelam no sono, 
+na armadilha psíquica, o seu coração sentirá uma enorme compaixão. Se você 
+ficar triste ou sentir desprezo, é somente porque ainda está dormindo como 
+eles! Acreditar em alguma coisa que estaria fora de você é uma doença da 
+consciência. Essa doença é a causa do seu Universo, uma excreção, uma 
+sombra sua. O Universo esta dentro de você... mas amanha de manha, no 
+trabalho, tomado pela mecanicidade de seus gestos cotidianos, você já terá se 
+esquecido.” 
+Realmente eu havia entendido rápido que este é o pior problema para qualquer
+um que tente transformar sua própria visão da vida: no dia-a-dia não é tão 
+simples se lembrar de olhar para a existência com outros olhos. Por exemplo, 
+não é fácil amar nossos inimigos, porque quando alguém nos faz uma 
+grosseria, normalmente não estamos ‘presentes’ e não nos lembramos 
+que é justamente aquele o momento de amar. Não é simples considerar o 
+mundo como parte de nós, porque quando perdemos dinheiro também não 
+estamos presentes e não nos lembramos que aquele dinheiro foi subtraído por 
+nós mesmos.  “Por este motivo é indispensável que você insista muito na le m 
+b r a n ç a d e si , na capacidade de estar presente a todo instante. Quando 
+estiver de frente a uma situação que parece difícil, esteja presente e lembre-se 
+de mim , lembre-se destes princípios. Lembre-se da sua vontade de despertar. 
+Não se preocupe com dinheiro, sucesso ou com a saúde... Não se preocupe 
+nem em encontrar o par perfeito. As suas energias devem permanecer focadas 
+no crescimento do seu Ser, e como conseqüência, o mundo externo começará 
+a mudar: chegara o trabalho certo, a riqueza correspondente, o parceiro mais 
+adequado. Assim, justamente porque o haver é somente uma projeção do ser , 
+o trabalho e o dinheiro se adequarão ao novo nível de sua essência. Já dizia 
+Draco Daatson: „torne-se primeiro um Rei... e logo depois um Reino te será 
+dado‟. Então esqueça o exterior e lembre-se de você a cada momento e sua 
+vida. É inútil que você deseje qualquer coisa agora, porque você ainda não se 
+conhece e não sabe o que é melhor pra você. Jesus também dizia: „procurem 
+primeiro o Reino de Deus e a sua justiça, e todas as outras coisas lhe serão 
+dadas em seguida‟. O Reino de Deus é o seu Reino, porque você é Deus. 
+Torne-se o Rei do seu Reino e tudo o que é material te será dado. Leia 
+atentamente o evangelho. Nele se encontram muitas verdades...” 
+Parou e me fixou nos olhos com aquela intensidade que me dava sempre 
+calafrios.  
+“Nunca se esqueça de você. Esteja sempre presente a si mesmo. Não se 
+adormente nunca. Observe tudo o que você faz. Nunca justifique o que esta 
+sentindo dando a culpa a alguém lá fora. Não deixe sua mente vagando, foque 
+no aqui e agora , se agarre no Agora! Não se deslumbre com o Mundo, nunca 
+pense que a solução se um problema esteja neste mundo. A causa do 
+problema e sua solução estão sempre dentro de você. O mundo é uma 
+projeção do que você é dentro, então se quer mais dinheiro concentre-se em 
+você, e não no dinheiro. Na verdade você não é preocupado porque tem pouco
+dinheiro, mas tem pouco dinheiro porque é preocupado! Quem tem atitude de 
+prosperidade, quem vive na excelência não se preocupa com dinheiro. Se 
+possui uma mentalidade vencedora não se preocupa com dinheiro, já sabe que
+se o projeto é bom, se acredita se é o seu sonho... o dinheiro chegará como 
+conseqüência! De agora em diante, a sua única preocupação é permanecer 
+centrado, em um estado de atenção sempre no aqui e agora. Não deixe nada 
+nem ninguém destruir a sua totalidade, a sua integridade. Não estou falando de
+integridade moral ou de bondade, mas de estar centrado em todo o seu Ser. 
+Quando guia um carro, quando passeia, assiste TV... Não fazê-los de maneira 
+mecânica e inconsciente, mas lembre-se sempre de você. A auto - observação 
+o esforço de não reclamar nunca, de não julgar o comportamento dos outros, a 
+capacidade d e sentir a sua emoção e suas dores sem fugir... tudo isso te torna
+integro, inatacável, invulnerável, e com o tempo, te trará riqueza também no 
+plano material. Não ande nunca atrás do dinheiro, trabalhe ao interno de si 
+mesmo e o dinheiro virá 
+ao seu encontro. ” Quanto mais você é, mas você tem, e não vice-versa! Seja 
+uma rocha que, ao interno, contém um Coração cheio de Amor.” 
+Eu estava zonzo. Cada frase sua havia uma potência extraordinária. Cada 
+conceito derretia conceitos psicológicos seculares que se encontravam dentro 
+de mim e que me fizeram viver como escravo por toda a minha vida. – Já 
+percebi que não tenho força para estar presente por muito tempo. Após 
+algumas tentativas me sinto esgotado e cansado – confessei.  “Realmente não 
+se pode fazer esforço para recordar-se de si por muito tempo. Isso deve ser 
+feito seguindo ciclos. O nosso aparelho psicofísico tem seus ritmos próprios. 
+Você não pode começar a lembrar de você e esperar que isso ocorra hoje e 
+sempre. Não é somente uma questão de força de vontade.”  
+Me explicou que o trabalho do despertar acontece como um treinamento 
+esportivo. Tendo praticado esportes por muitos anos, logo entendi o conceito. 
+Exatamente como no esporte, você não pode treinar sempre com a mesma 
+intensidade: existem períodos de carga e períodos de descanso.  
+É mais provável que os resultados apareçam na fase de descanso, quando a 
+consciência relaxa justamente porque não estamos fazendo esforço. Assim 
+como no esporte, mais do que os músculos, é o sistema nervoso que se 
+desgasta e que precisa de períodos de repouso. “Quando você se esforça para
+recordar-se a cada instante que o mundo esta dentro de você e que é você que
+o cria, esta colocando seu sistema nervoso sob teste. Essas tentativas de virar 
+de ponta cabeça a ordem do Mundo devem ser sustentadas por um nível 
+energético muito elevado, o que requer um sistema nervoso solido em sua 
+base. Os pensamentos são importantes. Existem pensamentos potentes, 
+cheios de fogo, que alçam vôo e que fazem voar, seja você, seja quem está à 
+sua volta. E existem 
+também pensamentos flácidos, que saem da mente e caem a poucos 
+centímetros de distancia de seus pés deixando uma mancha oleosa na qual 
+outros escorregam.  Os pensamentos potentes, se repetidos, podem colocar 
+em crise um sistema nervoso, o inflamam. Por este motivo, é tão difícil pensar 
+de maneira diferente em relação ao mundo. Estou te falando de uma 
+transmutação alquímica. Leva muito tempo para obter resultados concretos.  
+Por muitos anos você acreditou cegamente na realidade do mundo externo. 
+Por muitos anos seus olhos foram deslumbrados pela ilusão. Você criou um 
+ídolo e se colocou de frente a ele. Por muitos anos você acreditou que o mundo
+tinha vontade própria!  Você já se perguntou quem decide os eventos que 
+acontecem no mundo? Como um idólatra você atribuiu vontade a uma entidade
+metafísica externa a você, a única diferença é que você a chamou de Mundo 
+ao invés de Deus. Você projetou uma sombra fora de você e ai começou a ter 
+medo. Após todos esses anos de psico-escravidão, será duro percorrer o 
+caminho da libertação e entender que o mundo não tem vontade alguma, só 
+você a tem, e o mundo faz aquilo que você quer! Se em você desaparece todo 
+o medo, toda duvida, toda hesitação, o mundo é obrigado a te obedecer. Será 
+duro... mas o quanto será, depende somente de você, da força da sua 
+resistência, da dureza das suas cristalizações. Draco Daatson dizia: O mundo 
+existe porque você existe. O mundo é vivo porque você é vivo. O mundo é só 
+um reflexo seu. Cada homem ou mulher que você encontra é 
+uma parte desconhecida de você, e está ali para te ajudar a curar uma ferida 
+da alma. Draco Daatson foi o primeiro, agora cabe a nós, a você....”  
+Me ordenou a registrar por escrito o mais fielmente possível as frases 
+pronunciadas por ela durante nossos encontros. Escrevi tudo. E ela me dizia: 
+“Porque essas são palavras veiculadoras de Fogo. Releia-as quando perder o 
+centro, quando se sentir desencorajado, quando parecer que o Mundo 
+„reassumiu as rédeas‟ de sua vida. O Fogo libertador de Draco Daatson 
+atravessou os séculos e agora se expressa através de minhas palavras. Um 
+dia o fará através das suas...” 
+9. UM SONHO, UMA ESCOLA A civilização moderna são esta se 
+desenvolvendo, isso simplesmente não é verdade. Construímos arranha-céus, 
+pontes, satélites..., mas isso não é desenvolvimento, porque são todos 
+extensões do nosso aparelho psico-físico e se suas necessidades. Um 
+passarinho que constrói seu ninho não esta se desenvolvendo, não esta 
+melhorando a si mesmo, esta somente trabalhando pela sua sobrevivência. 
+Uma lagarta que vira borboleta, ao contrário, esta realmente se transformando. 
+Quando você pensar em uma escola e em seu objetivo, é exatamente para isso
+que ela deve ser. Quem freqüenta uma escola não deve aprender a sobreviver, 
+mas a transmutar a si mesmo, de lagarta à borboleta! O que significa 
+„Universidade‟? Tem o mesmo significado de Universo (voltado ao „Uno‟). Uma
+verdadeira escola deve ser capaz de reconduzir o individuo ao Uno, ao Todo, 
+ajudando-o 
+então a libertar-se da „neuro-prisão‟ que se encontra desde os primeiros anos 
+de vida. Uma escola real, favorece no ser humano o crescimento de uma 
+psicologia livre do medo e focada na abundância ao invés de na escassez. Eu 
+cultivo o sonho de uma „Escola do Ser‟ uma Escola da Alma. A Escola de hoje 
+fabrica escravos em série. Cinco ou seis horas ao dia sentados atrás de uma 
+carteira escolar submetendo-se à lavagem cerebral servem para preparar uma 
+geração para a mediocridade, ao inferno do mundo ordinário, à escravidão das 
+pelo menos oito horas de trabalho no escritório.  
+Sem dúvida o ser humano é por si só criativo, mas a escola consegue fazer 
+dele um robô, um código de barras orgânico perfeitamente encaixável no 
+processo do ‘produz-consome-racha’. As escolas de todo o mundo, ate as 
+renomadas universidades americanas, no final das contas ensinam somente 
+algumas coisas para sobreviver melhor neste mundo, mas não e-ducam a 
+sonhar um mundo diferente. Daquelas universidades saem predadores que 
+atropelam os outro para agarrar um pedacinho e mundo, mas o Líder de 
+coração aberto que vive na abundância é outra coisa... é uma outra espécie.”  
+“A escola prepara milhões de máquinas biológicas a não sentir mais a dor da 
+alma da luta pela sobrevivência. A dor de toda uma existência passada 
+dependendo de alguém à espera da pensão. A escola nos anestesia nos 
+acostumando a suportar a falta de um sonho na nossa vida, o sofrimento de 
+fazer aquilo que não amamos. Uma verdadeira escola deveria instruir sobre 
+como vencer o mundo, e não como vencer no mundo. Quem quer vencer no 
+mundo é sempre orientado ao externo de si mesmo ( extra - versus ), em busca
+de satisfações efêmeras, escravo da competição, porque ainda acredita que a 
+ilusão tenha uma 
+vida própria, independente de sua consciência. Quem quer vencer o mundo é, 
+ao contrário, orientado para dentro de si mesmo ( intro - versus ) porque sabe 
+que o ambiente externo, a posição social e a riqueza, surgem de dentro para 
+fora, na essência. “Quem é patrão de si mesmo governa o mundo... e o mundo 
+o recompensa com abundância” dizia Draco Daatson.” 
+Quanto a isso eu não havia nada a discutir com Victoria Ignis. A psicologia que 
+nos dominou até hoje realmente nos faz acreditar que somos pequenos, fracos,
+impotentes e que necessitamos de segurança e proteção do alto. Nas escolas 
+nos ensinam que somos incapazes de conhecer o Universo ao nosso redor e 
+que, então precisamos da ciência; que somos incapazes de nos curar, então 
+precisamos da medicina; que a riqueza da terra é limitada (não da para todos!) 
+então, se queremos viver na riqueza, devemos competir segundo a regra ‘mors
+tua vita  eã’ (sua morte é a minha vida). Mas as riquezas da terra não são como
+um cobertor muito curto, que quando se puxa de um lado o outro fica 
+descoberto. São ao contrário, uma fonte abundante na qual todos poderíamos 
+ter acesso se somente mudássemos nosso modo de entender a existência. No 
+dito terceiro mundo existem cidades cheias de riquezas que poderiam fornecer 
+abundancia a todos os habitantes, enquanto ocorre que a maioria desses 
+povos se afundam na miséria porque em seu governo faltam homens 
+corajosos, de coração aberto, portadores de um sonho, capazes de visões 
+amplas, que consigam sentir dentro de si a responsabilidade pelo bem estar 
+dos cidadãos. Faltam verdadeiros líderes capazes de manifestar uma 
+psicologia de prosperidade e riqueza ao invés de severidade e desfrutamento. 
+“Essa é a psicologia da escassez, do medo e do limite transmitida nas escolas 
+do planeta: tem pouco... e para conseguir uma parte daquele pouco você deve 
+lutar desde quando nasce até morrer. Mas a verdade é que o Universo é supra
+abundante, tem riqueza para todos e não é necessário passar por cima dos 
+outros para conseguí-la. „ Vita tua vita  eã‟ (sua vida, minha vida) será o lema 
+do futuro.”  
+Victoria Ignis me explicou que os homens são servos que lutam entre si por 
+uma fatia a mais de ilusão, alguma coisa que os faça esquecer a dor de serem 
+servos. Me fez entender que podemos ter o Universo ao nossos pés. Mas na 
+verdade ele nos parece algo amedrontador, cheio de armadilhas, sob o qual 
+não havemos nenhum poder e que devemos temer.  “e você pudesse sentir 
+mesmo por um instante que o Universo se encontra dentro de você e o reflete...
+você não conheceria mais o medo, não entraria mais em competição pela 
+sobrevivência, não haveria mais limites. Este é o êxodo psicológico a qual é 
+chamada a humanidade de hoje. Logo haverá uma divisão entre os Elfos e os 
+Orcs. De um lado uma nova geração que conhece a arte do sonhar: espíritos 
+livres, vulcões intuitivos, grandes comunicadores, hábeis administradores de 
+fortunas econômicas cercados de abundância, capazes de amar com o 
+coração aberto e criar riqueza ao invés de tentar agarrar a dos outros. De outro
+lado os anões psicológicos, os assustados com o mundo, à procura de 
+assistência Estatal, incapazes de assumir responsabilidade, ocupados com a 
+luta pela sobrevivência, prontos a desfrutar de seus semelhantes para ficarem 
+vivos: são os „reclamões‟, pessoas que lamentam da vida e atribuem sempre a
+alguém ou alguma coisa a causa de suas próprias mazelas e de sua falta de 
+integridade. Sendo pobres por dentro – incapazes de sentir a abundância 
+dentro de si mesmos – serão cada vez mais pobres externamente, porque 
+como disse Jesus: “A quem tem será dado e ficará na abundância; e a quem 
+não tem será retirado ate mesmo aquilo que possui. [Mateus 13,12].  
+Que façam os empregados, os políticos ou administradores, delegados, não 
+importa, porque até nos cargos mais altos das organizações freqüentemente se
+encontram anões da consciência, homens „pobres por dentro‟. Mesmo que, por
+um período, possam aparentar serem ricos e potentes, sua riqueza e seu poder
+são sempre efêmeros enquanto fundados no medo e no parasitismo. Os 
+habitantes do planeta foram expostos por milênios à „educastração‟, a 
+comandos hipnóticos ou seja, a in dução ao invés da e - ducação . Uma única 
+mensagem educativa emerge das escolas, das famílias, da mídia: o mundo é 
+um gigante desconhecido que decide a cada dia se vai te premiar ou te punir, 
+te adoentar ou te deixar com saúde, se vai te matar ou te deixar vivo... e você é
+um anão que se submete à sua „vontade‟. Essa é a única grande religião de 
+massa: o mundo eleito à divindade onipotente.” 
+Entendi logo que uma escola sustentada por um paradigma similar não fazia 
+nada mais do que injetar na mente dos jovens atitudes e comportamentos de 
+vitimas medrosas, capazes de tudo para sobreviver.  “A figura do herói – do 
+Mônaco guerreiro cujo sucesso nunca
+depende de circunstâncias externas e cuja forca deriva da integridade do Ser 
+desapareceu da educação normalmente realizada nas escolas, e cedo ou tarde
+desaparecerão também os livros que falam do assunto, para que nenhum 
+jovem sinta mais o tal chamado. O mito esta sendo ofuscado. Então os críticos 
+intelectuais de televisão, os administradores comandados, que depredam as 
+indústrias criadas por outros, os políticos corruptos... serão os únicos pontos de
+referencia para as novas 
+gerações. Por isso os cidadãos devem se organizar e criar escolas privadas e 
+alternativas, onde seja mantido vivo o Fogo da alma.” 
+Sempre suspeitei, mesmo antes de encontrar Victoria Ignis, que gênios, 
+artistas, inventores, conseguissem emergir apesar das escolas comuns e não 
+graças a ela. Somente quem possui uma psique tão forte e inexplicável à 
+instituições acadêmicas possui alguma esperança de poder utilizar seus 
+talentos. Música, teatro, filosofia e procura da verdade desapareceram das 
+aulas para darem lugar à matérias técnicas que possam criar dependentes 
+mais rapidamente. E contraproducente mostrar a Beleza a quem, ao invés 
+disso deve ser adestrado a passar o resto de sua vida nas modernas 
+plantações de algodão: escritórios repletos de computadores. Deve-se fazer de
+modo que não se tenha como comparar, a fim de que nunca venha a sentir a 
+dor da condição empregatícia. A maior aberração que a escola consegue 
+realizar dia após dia na mente das crianças é que o servo, uma vez que se 
+torna adulto e é inserido no mundo do trabalho, não só não se da conta de sua 
+condição de escravidão, mas se sente ainda um privilegiado e aspira trabalhar 
+oito horas por dia, seis dias na semana, realizando um trabalho que não o 
+apaixona. O servo agradece a sociedade que lhe concedeu tudo isso... e 
+coloca seus filhos para estudarem na escola comum, pois espera que um dia 
+tal privilégio seja concedido também a eles! O verdadeiro servo não é aquele 
+que sabe que é servo, mas aquele que foi condicionado desde pequeno a 
+considerar ‘normal’ aquela que, pelo contrário, é claramente uma condição de 
+escravidão. É quando o servo perde a capacidade de reconhecer sua condição 
+e a chama ‘democracia’ ou ‘sociedade livre’ que a casta que se encontra no 
+poder realmente venceu. Se desde quando nascemos somos expostos a 
+visões de adultos que mendigam trabalho de qualquer um, será para nós, 
+normal fazer a mesma coisa, mas, sobretudo, teremos perdido também a 
+capacidade de pensar em um modelo de vida diferente. “Lembre-se de que a 
+prisão é sempre interior e você é o único responsável por ela. Como 
+conseqüência, também a libertação se encontra dentro de você. Não delegue 
+ao externo a causa da sua prisão, senão terá que fazer a mesma coisa pela 
+sua liberação. „O homem não cria o mundo, mas é criado por ele‟ é um 
+comando 
+hipnótico deletério, que te obriga a se considerar vitima dos caprichos da sorte 
+e te transforma em mendigo. Deste comando hipnótico nasce a sua miséria 
+psicológica.” 
+Este sistema deve falir, e falirá. Escolas e universidades continuam a formar 
+jovens com atitude de dependência, seguidores da religião da sobrevivência, 
+quando no Ocidente as vagas de trabalho para dependente esta diminuindo a 
+cada dia em ritmo sempre crescente. O potencial vivaz e criativo com o qual os 
+jovens vêm ao mundo é reduzido e confinado graças ao ensinamento 
+escolástico atual, de maneira que eles aspirem depender e não mais criar. Mas 
+um dia o trabalho dependente desaparecera definitivamente de nossas vidas, 
+todas as atividades repetitivas e mecânicas serão feitas por maquinas, e então 
+somente os criativos sobreviverão: indivíduos que saibam reinventar a própria 
+vida e que possuem um sonho para seguir.  “A dependência vem de uma falta 
+de amor pela vida. Se não confia na vida, deve depender então, de alguém. 
+Um indivíduo totalmente centrado , desperto, de coração aberto, não trabalha 
+mais: sua única ocupação torna-se o sonhar, idealizar. Esse deve ser o seu 
+objetivo: aumentar seu nível de riqueza e diminuir a quantidade de trabalho. 
+Não é utopia, não é algo do qual deve se envergonhar, é um direito seu 
+enquanto ser humano. Quanto mais limitado for seu objetivo, maior a 
+quantidade de trabalho que devera realizar na matéria. Saia da crença de que 
+uma riqueza maior deve com certeza ser as custas mais sofrimento. Liberte-se 
+da maldição da caçada ao Paraíso Terrestre! O trabalho é produto de uma 
+condenação, e não a condição natural do ser humano. Só o seu senso de 
+separação do Uno – a falta de integridade do seu „Eu‟ – te vincula ao trabalho 
+físico.” 
+Victoria Ignis me explicou o quanto é urgente uma escola que ensine os jovens 
+a arte de se conhecer, da auto-observação e da autotransformação.  
+“Evidentemente, só depois de uma transformação do nosso Ser, podemos 
+também redescobrir valores fortes e ideais a serem seguidos. Não se pode 
+colocar valores artificialmente na multidão, mas pode-se fazer emergir da 
+interioridade do individuo, quando este é realmente e - ducado . Não se pode 
+borrifar amor, heroísmo e honestidade por ai, como se faz com a água nas 
+plantas. Mas pode-se ajudar um indivíduo a encontrar o amor, heroísmo e 
+honestidade dentro de si, servindo de espelho. A transmutação de um único 
+ser, alavanca ao progresso toda a espécie. Como pode ser feliz um individuo 
+que não conhece acima de tudo a si mesmo? Que tipo de empregado, diretor, 
+mãe ou pai será? A vida de todo um País depende da existência de indivíduos 
+que pegaram para si a responsabilidade do mundo. Sentem a humanidade 
+dentro de suas consciências e assumem a paternidade.” 
+A primeira fase consiste em e-ducar os adultos, para que estes desejem que 
+tais ensinamentos sejam transmitidos também aos seus próprios filhos, 
+colocando-os para em escolas alternativas, inovadoras. Nestas escolas se 
+presta atenção ao valor da criança como indivíduo, às suas inclinações, e à 
+expressão de suas qualidades. Preparam líderes sonhadores, e não códigos de
+barra orgânicos. A nova civilização tem fome de homens e mulheres íntegros, 
+universais (voltados ao Uno) e não existe ainda uma escola que possa fazê-lo. 
+Além de e-ducar os pais, devem ser preparados os novos professores – 
+Portadores da Chama – capazes de transmitir por irradiação, somente com sua
+presença, a nova visão do mundo aos seus alunos. No futuro não se tratará 
+mais de transmitir noções de uma mente a outra, mas de contagiar com o 
+sonho da liberdade a alma do aluno. De coração a coração, e não de mente a 
+mente. “A escola comum te ensina a ser útil somente a si mesmo, prendendo-o 
+na roda da sobrevivência: estude, arrume um trabalho, forme uma família, 
+reproduza,... Hoje precisamos de uma escola com visão ampla, que foque os 
+esforços do indivíduo em ser útil à humanidade presente e futura, e não só a si 
+mesmo. A criança deve crescer com a idéia de que sua vida deverá servir de 
+exemplo a toda a espécie, e não ser uma luta sem fôlego pela sobrevivência. 
+Paradoxalmente, quando trabalhamos só para a nossa manutenção, as vezes 
+não conseguimos nem isso, enquanto que se nos concentramos em ser útil aos
+outros, certamente teremos sempre sustento para nós e para nossos 
+familiares. Lembre-se das palavras de Jesus: „Procure primeiro o reino de 
+Deus e sua justiça, e todas essas coisas lhe serão dadas em seguida‟. Este 
+será o modo de ser da humanidade futura. Mas então porque não sabemos ser
+já hoje o que seremos daqui a cem anos? Porque somos ainda submissos ao 
+tempo. Ma essa é uma outra história...
